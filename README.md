@@ -1,6 +1,6 @@
 <img src="https://files.catbox.moe/s1ueuh.png">
 
-will start adding people if i manage to get 10+ requests! if so, ill start adding them on august 5th
+if i manage to get 10+ requests, ill start adding them on august 5th!
 
 Hello! welcome to this page. This is where you write one of the friendships (by writing their github users in strawpage) about how much you enjoy spending time with them! messages could be anon if wanted, but you can also make yourself clear on who's writing :) This is purely out of entertainment and a way to try spreading platonic love to your friends.
 
