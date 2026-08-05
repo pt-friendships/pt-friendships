@@ -100,7 +100,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/yanderetan"></i>yanderetan</i></a> <a href="https://github.com/girlslikeguns"></i>girlslikeguns</i></a> <a href="https://github.com/accidentaldeath"></i>accidentaldeath</i></a> < you guys make my day! i really like hanging out with you three - <a href="https://github.com/F-02-14-23"></i>f-02-14-23</i></a>
 
-<a href="https://github.com/yourlovelyscentscoreshayla1111"></i>yourlovelyscentscoreshayla1111</i></a> < I love you! - <a href="https://github.com/Z4WARUD0"></i>z4warud0</i></a>
+<a href="https://github.com/yourlovelyscentscoreshayla1111"></i>yourlovelyscentscoreshayla1111</i></a> < I hope we will stay friends forever! - <a href="https://github.com/Z4WARUD0"></i>z4warud0</i></a>
 
 <a href="https://github.com/funk4punks"></i>funk4punks/i></a> < you are my found brother, i am forever grateful for our friendship! - <a href="https://github.com/devimccallion"></i>devimccallion</i></a>
 
