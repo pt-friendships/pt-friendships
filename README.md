@@ -50,7 +50,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/HYP3RBREAK"></i>HYP3RBREAK</i></a> < hey friend! i hope you know that youre fun to hang out with - anon
 
-<a href="https://github.com/pastellcloudyy"></i>pastellcloudyy</i></a> <a href="https://github.com/elysialing"></i>elysialing</i></a> <a href="https://github.com/viimsey"></i>viimsey</i></a> <a href="https://github.com/dopamine-ofdawn"></i>dopamine-ofdawn</i></a> <a href="https://github.com/earl-grey-mp4"></i>earl-grey-mp4</i></a> <a href="https://github.com/zephyrclysm"></i>zephyrclysm</i></a> < really peak and everyone is best friends!
+<a href="https://github.com/pastellcloudyy"></i>pastellcloudyy</i></a> <a href="https://github.com/elysialing"></i>elysialing</i></a> <a href="https://github.com/viimsey"></i>viimsey</i></a> <a href="https://github.com/dopamine-ofdawn"></i>dopamine-ofdawn</i></a> <a href="https://github.com/earl-grey-mp4"></i>earl-grey-mp4</i></a> <a href="https://github.com/zephyrclysm"></i>zephyrclysm</i></a> <a href="https://github.com/dr-vanta"></i>dr-vanta</i></a> < really peak and everyone is best friends!
 
 <a href="https://github.com/misfortunes-s"></i>misfortunes-s</i></a> <a href="https://github.com/xathetic"></i>xathetic</i></a> <a href="https://github.com/mortalpain"></i>mortalpain</i></a> <a href="https://github.com/cryptic-veil"></i>cryptic-veil</i></a> <a href="https://github.com/HYP3RBREAK"></i>HYP3RBREAK</i></a> <a href="https://github.com/giggle-mut"></i>giggle-mut</i></a> <a href="https://github.com/martinvously"></i>martinvously</i></a> <a href="https://github.com/brittlestars"></i>brittlestars</i></a> < amazing friendgroup!
 
@@ -144,3 +144,6 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/Harukawas"></i>harukawas</i></a> < i love being around you and youre easy to talk with with! - anon
 
+<a href="https://github.com/bludhavenn"></i>bludhavenn</i></a> <a href="https://github.com/cazirus"></i>zephyrclysm</i></a> < thank you for being my friends! < #halisqueer
+
+<a href="https://github.com/T0R4X"></i>t0r4x</i></a> <a href="https://github.com/SwanSorrow"></i>swansorrow</i></a> <a href="https://github.com/AngelicDeceit"></i>angelicdeceit</i></a> <a href="https://github.com/ChimoryX"></i>chimoryx</i></a> <a href="https://github.com/Eun0i4Xd"></i>eunn0i4xd</i></a> <a href="https://github.com/rainyourday"></i>rainyourday</i></a> < the six abnormal phenomenal anomalies friendgroup!
