@@ -1,9 +1,144 @@
 <img src="https://files.catbox.moe/s1ueuh.png">
 
-hey guys! reminder that the nominations are a day left (august 5th)! ive gotten a lot of requests so ill be continuing this
+All finished! you may nominate more because it seems Ill be able to continue this account!
 
 Hello! welcome to this page. This is where you write one of the friendships (by writing their github users in strawpage) about how much you enjoy spending time with them! messages could be anon if wanted, but you can also make yourself clear on who's writing :) This is purely out of entertainment and a way to try spreading platonic love to your friends.
 
 # <a href="https://friendingeveryonehi.straw.page/"></i>strawpage to request!</i>
 
-upcoming users...
+<a href="https://github.com/yuriclown"></i>yuriclown</i></a> <a href="https://github.com/N1TEB0I"></i>n1teb0i</i></a> <a href="https://github.com/heathvcliff"></i>heathvcliff</i></a> <a href="https://github.com/jia-baoyu"></i>jia-baoyu</i></a> <a href="https://github.com/R0K1RA"></i>r0k1ra</i></a> < the bestest friends of fat gc!
+
+<a href="https://github.com/beauty-clown"></i>beauty-clown</i></a> < Even if we barely share any same fandoms, i still enjoy sitting and spending time with you! youre super cool. - <a href="https://github.com/planetlordd"></i>planetlordd</i>
+
+<a href="https://github.com/clownfoe"></i>clownfoe</i></a> <a href="https://github.com/realdustsans"></i>realdustfans</i></a> < amazing duo that loves spending time together!
+
+<a href="https://github.com/TheWeightOfYourGhost"></i>TheWeightOfYourGhost</i></a> <a href="https://github.com/mymydweller"></i>mymydweller</i></a> < we are practically inseperable in the game! we talk everyday and share secrets of our own! - <a href="https://github.com/charliezahrlie"></i>charliezahrlie</i></a>
+
+<a href="https://github.com/antlerqueen"></i>antlerqueen</i></a> < you are so fun to sit with and you have a pretty style! funny humour with amazing art as well. - anon!
+
+<a href="https://github.com/sorbetflakes"></i>sorbetflakes</i></a> <a href="https://github.com/opioiid"></i>opioiid</i></a> < you two are really loved by your dear best friend!
+
+<a href="https://github.com/facaqe"></i>facaqe</i></a> <a href="https://github.com/swoocket"></i>swoocket</i></a> <a href="https://github.com/buildermonyaoi"></i>buildermonyaoi</i></a> < amazing trio!
+
+<a href="https://github.com/crimsonscarzz"></i>crimsonscarzz</i></a> <a href="https://github.com/njqh"></i>njqh</i></a> < real life sisters and they love each other!
+
+<a href="https://github.com/larrytrainor"></i>larrytrainor</i></a> < i love spending time with him! much love for him - anon
+
+<a href="https://github.com/gamblersi"></i>gamblersi</i></a> <a href="https://github.com/DEBTHVERIFIED"></i>debthverified</i></a> < the doublefedora duo!
+
+<a href="https://github.com/gamblersi"></i>gamblersi</i></a> <a href="https://github.com/uictim"></i>uictim</i></a> < the royalduo!
+
+<a href="https://github.com/Acid-batz"></i>Acid-batz</i></a> <a href="https://github.com/eggypancake1"></i>eggypancake1</i></a> <a href="https://github.com/misforntunes-s"></i>misfortunes-s</i></a> < you guys are very funny, we got very close by a short time and you all are the coolest ever! love you guys platonically - <a href="https://github.com/N1TEB0I"></i>N1TEB0I</i></a>
+
+<a href="https://github.com/sorbetflakes"></i>sorbetflakes</i></a> < your best friend of 6 years thinks youre a wonderful friend, you have good jokes and is a fun person to go adventures with!
+
+<a href="https://github.com/pupmikaw"></i>pupmikaw</i></a> <a href="https://github.com/the-seance"></i>the-seance</i></a> <a href="https://github.com/littlemissunshine"></i>littlemissunshine</i></a> < I love spending time with you, i love you very much and we always hang out in pony town! (pupmikaw) i love my two best friends too, adore them very much!
+
+<a href="https://github.com/tragiceye"></i>tragiceye</i></a> <a href="https://github.com/tragicburn"></i>tragicburn</i></a> < amazing duo!
+
+<a href="https://github.com/tirgery123"></i>tirgery123</i></a> <a href="https://github.com/conexlonn"></i>conexlonn</i></a> < amazing duo!
+
+<a href="https://github.com/yubelsrevenge"></i>yubelsrevenge</i></a> < you are the bestest friend that anyone could ever ask for! youre super funny and has peak ponies!
+
+<a href="https://github.com/abcforfemboys"></i>abcforfemboys</i></a> < thank you so much for being with me, even during hard times! i love you 4ever. - <a href="https://github.com/SQUEVIL"></i>squevil</i></a>
+
+<a href="https://github.com/magnuswashere"></i>magnuswashere</i></a> < youre so peak! - <a href="https://github.com/nyankit"></i>nyankit</i></a>
+
+<a href="https://github.com/pupfies"></i>pupfies</i></a> < i love spending time with them whether if im down or not! they would speak to me as im visible and im grateful to have a friend like them - <a href="https://github.com/spiralwindly"></i>spiralwindly</i></a>
+
+<a href="https://github.com/HYP3RBREAK"></i>HYP3RBREAK</i></a> < hey friend! i hope you know that youre fun to hang out with - anon
+
+<a href="https://github.com/pastellcloudyy"></i>pastellcloudyy</i></a> <a href="https://github.com/elysialing"></i>elysialing</i></a> <a href="https://github.com/viimsey"></i>viimsey</i></a> <a href="https://github.com/dopamine-ofdawn"></i>dopamine-ofdawn</i></a> <a href="https://github.com/earl-grey-mp4"></i>earl-grey-mp4</i></a> <a href="https://github.com/zephyrclysm"></i>zephyrclysm</i></a> < really peak and everyone is best friends!
+
+<a href="https://github.com/misfortunes-s"></i>misfortunes-s</i></a> <a href="https://github.com/xathetic"></i>xathetic</i></a> <a href="https://github.com/mortalpain"></i>mortalpain</i></a> <a href="https://github.com/cryptic-veil"></i>cryptic-veil</i></a> <a href="https://github.com/HYP3RBREAK"></i>HYP3RBREAK</i></a> <a href="https://github.com/giggle-mut"></i>giggle-mut</i></a> <a href="https://github.com/martinvously"></i>martinvously</i></a> <a href="https://github.com/brittlestars"></i>brittlestars</i></a> < amazing friendgroup!
+
+<a href="https://github.com/therealcastiel"></i>therealcastiel</i></a> <a href="https://github.com/thefleshcurtains"></i>theflushcurtains</i></a> <a href="https://github.com/NERDPROJECT"></i>nerdproject</i></a> < the team-free-will trio!
+
+<a href="https://github.com/Vampxxbi"></i>vampxxbi</i></a> <a href="https://github.com/denguemon"></i>denguemon</i></a> < amazing duo!
+
+<a href="https://github.com/01-800-PAPU"></i>01-800-papu</i></a> < youre one of my bestest friends and i love hanging out with you! - <a href="https://github.com/cellbito"></i>cellbito</i></a>
+
+<a href="https://github.com/pixstrs"></i>pizstrs</i></a> < you always make me laugh, and youre a easy friend to talk to! - <a href="https://github.com/cellbito"></i>cellbito</i></a>
+
+<a href="https://github.com/pawpads"></i>pawpads</i></a> <a href="https://github.com/Sillyster"></i>sillyster</i></a><a href="https://github.com/itrappedddd"></i>itrappedddd</i></a><a href="https://github.com/seventh-seeker"></i>seventh-seeker</i></a><a href="https://github.com/p0kerchips"></i>p0kerchips</i></a><a href="https://github.com/Tammyyy-25"></i>Tammyyy-25</i></a><a href="https://github.com/ABELFIRSTMAN111"></i>abelfirstman111</i></a> < amazing friendgroup!
+
+<a href="https://github.com/Mizziepoms"></i>mizziepoms</i></a> < youre one of the coolest and kindest people ever! i love speaking to you. - <a href="https://github.com/cellbito"></i>cellbito</i></a>
+
+<a href="https://github.com/garferss"></i>garferss</i></a> < we dont talk much... but i still consider you as a great friend of mine! i love sitting next to you - <a href="https://github.com/cellbito"></i>cellbito</i></a>
+
+<a href="https://github.com/motorwaygirl"></i>motorwaygirl</i></a> < youre super comfortable to be around with, and nice to sit with as well! - <a href="https://github.com/cellbito"></i>cellbito</i></a>
+
+<a href="https://github.com/paladinvw"></i>paladinvw</i></a> < even if we dont talk much, i still love hanging around you! - <a href="https://github.com/cellbito"></i>cellbito</i></a>
+
+<a href="https://github.com/Belovedz"></i>belovedz</i></a> < we dont talk much, but i still see you as a good friend! - <a href="https://github.com/cellbito"></i>cellbito</i></a>
+
+<a href="https://github.com/fawnshaveworms"></i>shawnshaveworms</i></a> <a href="https://github.com/Fufuyio_1206"></i>fufuyio_1206</i></a> <a href="https://github.com/eizoar"></i>eizoar</i></a> <a href="https://github.com/pweachi"></i>pweachi</i></a> <a href="https://github.com/cursedoflove"></i>cursedoflove</i></a> < strong friendship! keep it up!
+
+<a href="https://github.com/wolfcutiee"></i>wolfcutiee</i></a> <a href="https://github.com/yellowdeltarune"></i>yellowdeltarune</i></a> < siblings that loves spending time together! makes each others very happy
+
+<a href="https://github.com/piehker"></i>piehker</i></a> <a href="https://github.com/yvoisen"></i>yvoisen</i></a> <a href="https://github.com/6ullets"></i>6ullets</i></a> < the TMC trio!
+
+<a href="https://github.com/Mizziepoms"></i>mizziepoms</i></a> <a href="https://github.com/garferss"></i>garferss</i></a> <a href="https://github.com/motorwaygirl"></i>motorwaygirl</i></a> < i love you all three as older sisters! you guys are absolutely amazing. - <a href="https://github.com/01-800-PAPU"></i>01-800-papu</i></a>
+
+<a href="https://github.com/starxsoda"></i>starxsoda</i></a> <a href="https://github.com/spokeizhere"></i>spokeizhere</i></a> < amazing duo!
+
+<a href="https://github.com/electrifypink"></i>electrifypink</i></a> < you are the most sweetest and loveliest and wonderful person! please continue crowning people and spread bunch of joy! - anon
+
+<a href="https://github.com/asrieluo"></i>asrieluo</i></a> <a href="https://github.com/vilesight"></i>vilesight</i></a> <a href="https://github.com/abcforfemboys"></i>abcforfemboys</i></a> < amazing tr- WAIT...! Honourable mentions: Auel! amazing friendship of four!
+
+<a href="https://github.com/bludhavenn"></i>bludhavenn</i></a> <a href="https://github.com/sebvsene"></i>sebvsene</i></a> <a href="https://github.com/aeszz"></i>aeszz</i></a> <a href="https://github.com/arsenall"></i>arsenall</i></a> < you guys are the top of my list! thank you very much for being my friend and you guys are really cool! - <a href="https://github.com/hamfoolish"></i>hamfoolish</i></a>
+
+<a href="https://github.com/orderofthepig"></i>orderofthepig</i></a> < i love spending so much time with you! i never get bored of you when we hang out. - anon
+
+**THAT TREE GANG** < you guys are amazing! much love goes your way.
+
+<a href="https://github.com/NuageMouton"></i>NuageMouton</i></a> <a href="https://github.com/Wranglerkit"></i>Wranglerkit</i></a> < i love playing dumb games with you guys, you also made me less shy! - from a dear friend in your trio!
+
+<a href="https://github.com/qnakin"></i>qnakin</i></a> <a href="https://github.com/tukoian"></i>tukoian</i></a> <a href="https://github.com/plumpest"></i>plumpest</i></a> <a href="https://github.com/vilily"></i>vilily</i></a> <a href="https://github.com/xolariis"></i>xolariis</i></a> <a href="https://github.com/seishin-jpg"></i>seishin-jpg</i></a> <a href="https://github.com/pibblestick"></i>pibblestick</i></a> <a href="https://github.com/zandiik"></i>zandiik</i></a> <a href="https://github.com/meowsael"></i>meowsael</i></a> <a href="https://github.com/sdnryu"></i>sdnryu</i></a> <a href="https://github.com/atlanticoceans"></i>atlanticoceans</i></a> < kuki city! you guys make each other really happy and have a lot of gratitude!
+
+<a href="https://github.com/yanderetan"></i>yanderetan</i></a> <a href="https://github.com/girlslikeguns"></i>girlslikeguns</i></a> <a href="https://github.com/accidentaldeath"></i>accidentaldeath</i></a> < you guys make my day! i really like hanging out with you three - <a href="https://github.com/F-02-14-23"></i>f-02-14-23</i></a>
+
+<a href="https://github.com/yourlovelyscentscoreshayla1111"></i>yourlovelyscentscoreshayla1111</i></a> < I love you! - <a href="https://github.com/Z4WARUD0"></i>z4warud0</i></a>
+
+<a href="https://github.com/funk4punks"></i>funk4punks/i></a> < you are my found brother, i am forever grateful for our friendship! - <a href="https://github.com/devimccallion"></i>devimccallion</i></a>
+
+<a href="https://github.com/myentropyduo"></i>myentropyduo</i></a> < youve been my bestest of friends ive met on pony town. you are empathetic and trustworthy! - <a href="https://github.com/Pale-Garden"></i>pale-garden</i></a>
+
+<a href="https://github.com/slaughterwolf"></i>slaughterwolf</i></a> < you are my best friend that i couldve ever had! i love spending my time with you. - <a href="https://github.com/horroryaoi"></i>horroryaoi</i></a>
+
+<a href="https://github.com/wickedirene"></i>wickedirene</i></a> <a href="https://github.com/sydsterz"></i>sydsterz</i></a> < you two have changed my life, i am very grateful for everything - from a friend of your trio!
+
+<a href="https://github.com/kaleidoskulls"></i>kaleidoskulls</i></a> <a href="https://github.com/parameowia"></i>parameowia</i></a> <a href="https://github.com/c0ff3el0v3r"></i>c0ff3el0v3r</i></a> <a href="https://github.com/YipeMingosMimos"></i>yipemingosmimos</i></a> <a href="https://github.com/puhzinha"></i>puhzinha</i></a> <a href="https://github.com/jalbert-forever"></i>jalbert-forever</i></a> Tai < amazing friendgroup!
+
+<a href="https://github.com/gfpaw"></i>gfpaw</i></a> < i enjoy hanging out with you! - anon
+
+<a href="https://github.com/huntingbow"></i>huntingbow</i></a> <a href="https://github.com/lostyaoi"></i>lostyaoi</i></a> <a href="https://github.com/koski-sampo"></i>koski-sampo</i></a> < weve been friends for so long, i love you guys so much! - <a href="https://github.com/tomatosu"></i>tomatosu</i></a>
+
+<a href="https://github.com/kawaiest"></i>kawaiest</i></a> <a href="https://github.com/YunSillyYun"></i>yunsillyyun</i></a> < thank you for bringing a smile to my face! - anon
+
+<a href="https://github.com/s-ne0"></i>s-ne0</i></a> <a href="https://github.com/fuminoomi"></i>fuminoomi</i></a> <a href="https://github.com/bberdly"></i>bberdly</i></a> <a href="https://github.com/frogspondcollection"></i>frogspondcollection</i></a> <a href="https://github.com/F3LLIE"></i>f3llie</i></a> <a href="https://github.com/sykoyo"></i>sykoyo</i></a> < i hope we stay as friends forever! - rev
+
+<a href="https://github.com/wifiesitsallyours"></i>wifiesitsallyours</i></a> <a href="https://github.com/yukitozy"></i>yukitozy</i></a> < i really appreciate you guys and i wish you both happy lives! - anon
+
+<a href="https://github.com/fatallyhazed"></i>fatallyhazed</i></a> <a href="https://github.com/wifiesitsallyours"></i>wifieitsallyours</i></a> < you guys are very cool! i love spending time with you two! - anon
+
+<a href="https://github.com/pipthebean"></i>pipthebean</i></a> < you are the best person to exist!! im happy to be friends with you. - <a href="https://github.com/futuristic-maniac"></i>futuristic-maniac</i></a>
+
+<a href="https://github.com/CloveredFields"></i>cloveredfields</i></a> <a href="https://github.com/PlanetFields"></i>qnakin</i></a> <a href="https://github.com/Solardrsapph"></i>Solardrsapph</i></a> < amazing trio!
+
+<a href="https://github.com/t0rntodescent"></i>t0rntodescent</i></a> <a href="https://github.com/phainonirl"></i>phainonirl</i></a> < amazing duo!
+
+<a href="https://github.com/Tordplushie"></i>tordplushie</i></a> <a href="https://github.com/MASQUERADE-PARTY"></i>masquerade-party</i></a> <a href="https://github.com/Pixelbrickz"></i>pixelbrickz</i></a> < amazing trio!
+
+<a href="https://github.com/elisxne"></i>elisxne</i></a> <a href="https://github.com/muaIani"></i>mualani</i></a> < you guys make me happy and smile the most when i see you two! - <a href="https://github.com/bunnycoded"></i>bunnycoded</i></a>
+
+<a href="https://github.com/raysinet-tea"></i>raysinet-tea</i></a> < i love you very much! you are my bestest friend, love from a very dear anon...
+
+<a href="https://github.com/AMAZINGHIBIKI"></i>AMAZINGHIBIKI</i></a> < you mean the world to me, ive never been happier than being with you! your personality shines. - anon
+
+<a href="https://github.com/getjinx3d"></i>getjinx3d</i></a> < you are the best girlfriend ive ever had! you are amazingly talented and great at everything - partner
+
+<a href="https://github.com/infernalcrisis"></i>infernalcrisis</i></a> < thank you for staying with me til now! im very grateful. - anon
+
+<a href="https://github.com/Harukawas"></i>harukawas</i></a> < i love being around you and youre easy to talk with with! - anon
+
