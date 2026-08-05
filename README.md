@@ -46,7 +46,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/magnuswashere"></i>magnuswashere</i></a> < youre so peak! - <a href="https://github.com/nyankit"></i>nyankit</i></a>
 
-<a href="https://github.com/pupfies"></i>pupfies</i></a> < i love spending time with them whether if im down or not! they would speak to me as im visible and im grateful to have a friend like them - <a href="https://github.com/spiralwindly"></i>spiralwindly</i></a>
+<a href="https://github.com/pupfies"></i>pupfies</i></a> < i love spending time with them whether if im down or not! they would speak to me as im visible and im grateful to have a friend like them - <a href="https://github.com/kaboodIe"></i>kaboodie</i></a>
 
 <a href="https://github.com/HYP3RBREAK"></i>HYP3RBREAK</i></a> < hey friend! i hope you know that youre fun to hang out with - anon
 
@@ -62,7 +62,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/pixstrs"></i>pizstrs</i></a> < you always make me laugh, and youre a easy friend to talk to! - <a href="https://github.com/cellbito"></i>cellbito</i></a>
 
-<a href="https://github.com/pawpads"></i>pawpads</i></a> <a href="https://github.com/Sillyster"></i>sillyster</i></a><a href="https://github.com/itrappedddd"></i>itrappedddd</i></a><a href="https://github.com/seventh-seeker"></i>seventh-seeker</i></a><a href="https://github.com/p0kerchips"></i>p0kerchips</i></a><a href="https://github.com/Tammyyy-25"></i>Tammyyy-25</i></a><a href="https://github.com/ABELFIRSTMAN111"></i>abelfirstman111</i></a> < amazing friendgroup!
+<a href="https://github.com/pawpads"></i>pawpads</i></a> <a href="https://github.com/Sillyster"></i>sillyster</i></a><a href="https://github.com/itrappedddd"></i>itrappedddd</i></a><a href="https://github.com/seventh-seeker"></i>seventh-seeker</i></a><a href="https://github.com/p0kerchips"></i>p0kerchips</i></a> <a href="https://github.com/Tammyyy-25"></i>Tammyyy-25</i></a><a href="https://github.com/ABELFIRSTMAN111"></i>abelfirstman111</i></a> < amazing friendgroup!
 
 <a href="https://github.com/Mizziepoms"></i>mizziepoms</i></a> < youre one of the coolest and kindest people ever! i love speaking to you. - <a href="https://github.com/cellbito"></i>cellbito</i></a>
 
@@ -147,3 +147,5 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/bludhavenn"></i>bludhavenn</i></a> <a href="https://github.com/cazirus"></i>zephyrclysm</i></a> < thank you for being my friends! < #halisqueer
 
 <a href="https://github.com/T0R4X"></i>t0r4x</i></a> <a href="https://github.com/SwanSorrow"></i>swansorrow</i></a> <a href="https://github.com/AngelicDeceit"></i>angelicdeceit</i></a> <a href="https://github.com/ChimoryX"></i>chimoryx</i></a> <a href="https://github.com/Eun0i4Xd"></i>eunn0i4xd</i></a> <a href="https://github.com/rainyourday"></i>rainyourday</i></a> < the six abnormal phenomenal anomalies friendgroup!
+
+<a href="https://github.com/demonofiight"></i>demonofiight</i></a> <a href="https://github.com/scottishtwinegines"></i>scottishwinegines</i></a> <a href="https://github.com/thelasttwilight"></i>thelasttwilight</i></a> < i really adore them as my group! even days through silence, i still talk to them. - <a href="https://github.com/aetherparadise"></i>aetherparadise</i></a>
