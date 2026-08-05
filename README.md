@@ -2,6 +2,8 @@
 
 All finished! you may nominate more because it seems Ill be able to continue this account!
 
+if i havent added your request, it might be possible that it did not send to me... you can always try sending it again!
+
 Hello! welcome to this page. This is where you write one of the friendships (by writing their github users in strawpage) about how much you enjoy spending time with them! messages could be anon if wanted, but you can also make yourself clear on who's writing :) This is purely out of entertainment and a way to try spreading platonic love to your friends.
 
 # <a href="https://friendingeveryonehi.straw.page/"></i>strawpage to request!</i>
