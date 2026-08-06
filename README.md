@@ -160,7 +160,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/Pale-Garden"></i>pale-garden</i></a> < i love you so much, and im looking forward to seeing you because youre amazing! - <a href="https://github.com/myentropyduo"></i>myentropyduo</i></a>
 
-<a href="https://github.com/DEBHVERIFIED"></i>debhverified</i></a> <a href="https://github.com/STREETY-STREET"></i>streety-street</i></a> <a href="https://github.com/Polkaca"></i>polkaca</i></a> < sunset trio!
+<a href="https://github.com/DEBHTVERIFIED"></i>debhtverified</i></a> <a href="https://github.com/STREETY-STREET"></i>streety-street</i></a> <a href="https://github.com/Polkaca"></i>polkaca</i></a> < sunset trio!
 
 <a href="https://github.com/zyarverse"></i>zyarverse</i></a> <a href="https://github.com/paworeo"></i>paworeo</i></a> <a href="https://github.com/snowyferns"></i>snowyferns</i></a> <a href="https://github.com/CONEXlONN"></i>conexionn</i></a> < weve been friends for so long! you guys make my days brighter and i love you guys by heart. - <a href="https://github.com/IHASAFACE-LULZ"></i>ihasaface-lulz</i></a>
 
@@ -183,5 +183,19 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/frikisenpai69"></i>frikisenpai69</i></a> <a href="https://github.com/xeijirou"></i>xeijirou</i></a> < you guys are the few people i felt close with, stay awesome! - anon
 
 <a href="https://github.com/kunakunah"></i>kunakunah</i></a> <a href="https://github.com/vatrinyasin"></i>vatrinyasin</i></a> <a href="https://github.com/ramudaa"></i>ramudaa</i></a> <a href="https://github.com/ENUMAELlSH"></i>enumaelish</i></a> <a href="https://github.com/ch3shyre"></i>ch3shyre</i></a> <a href="https://github.com/bastetngeb"></i>bastetngeb</i></a> <a href="https://github.com/Acid-batz"></i>acid-batz</i></a> <a href="https://github.com/shxrkyxio"></i>shxrkyxio</i></a> <a href="https://github.com/OLD-D0LL"></i>old-d0ll</i></a> <a href="https://github.com/juxtaposition13"></i>juxtaposition13</i></a> <a href="https://github.com/Lxnkzz"></i>lxnkzz</i></a> <a href="https://github.com/ESSH-DiamonGold"></i>essh-diamongold</i></a> < the kunalings!
+
+<a href="https://github.com/dragonplays-forsaken"></i>dragonplays-forsaken</i></a> <a href="https://github.com/ravensev"></i>ravensev</i></a> < awesome duo!
+
+<a href="https://github.com/infugue"></i>infugue</i></a> < youre one of the best people ive met on ponytown, you are kind and so funny! - anon
+
+<a href="https://github.com/sch7rke"></i>sch7rke</i></a> <a href="https://github.com/foodlvr"></i>foodlvr</i></a> <a href="https://github.com/neverwanted2dance"></ineverwanted2dance</i></a> <a href="https://github.com/sw33tsug4rcookie"></i>sw33tsug4rcookie</i></a> < i enjoy hanging out with my friends! i love you guys very much. - <a href="https://github.com/Sproutkin"></i>sproutkin</i></a> 
+
+<a href="https://github.com/sebvsene"></i>sebvsene</i></a> <a href="https://github.com/lilsweeterlilbitter"></i>lilsweeterlilbitter</i></a> <a href="https://github.com/Lemonyada"></i>lemonyada</i></a> <a href="https://github.com/aeszz"></i>aeszz</i></a> < you guys made my year and i love you guys! same goes to the others. - anon
+
+<a href="https://github.com/1-800-PAPU"></i>1-800-papu</i></a> <a href="https://github.com/cellbito"></i>cellbito</i></a> < you guys are the best people a person like me can ever ask for! - <a href="https://github.com/pixstrs"></i>pixstrs</i></a>
+
+<a href="https://github.com/1-800-PAPU"></i>1-800-papu</i></a> <a href="https://github.com/cellbito"></i>cellbito</i></a> <a href="https://github.com/motorwaygirl"></i>motorwaygirl</i></a> <a href="https://github.com/garferss"></i>garferss</i></a> <a href="https://github.com/Mizziepoms"></i>mizziepoms</i></a> <a href="https://github.com/Belovedz"></i>belovedz</i></a> <a href="https://github.com/butchermask"></i>butchermask</i></a> <a href="https://github.com/solroses"></i>solroses</i></a> < thank you for being the nicest people ever! i enjoy interacting with you guys. - <a href="https://github.com/pixstrs"></i>pixstrs</i></a> 
+
+**VD server** < thank you guys for accepting me in your group! you guys are amazing. love yall!
 
 fingers are in pain but its really worth it -w-
