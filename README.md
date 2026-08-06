@@ -167,3 +167,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/bluevxmpire"></i>bluevxmpire</i></a> <a href="https://github.com/vampyrumspectrum"></i>vampyrumspectrum</i></a> < best/amazing duo!
 
 <a href="https://github.com/avenueq"></i>avenueq</i></a> < you are the most energetic and fun person to talk to, youre always so positive and amazing! - <a href="https://github.com/N1TEB0I"></i>n1teb0i</i></a>
+
+<a href="https://github.com/immune2salmon"></i>immune2salmon</i></a> <a href="https://github.com/ingkarlahsaksiakhiratmu"></i>ingkarlahsaksiakhiratmu</i></a> < you guys are the most wonderful people, you guys made me feel at home! - <a href="https://github.com/patchworkpaws"></i>patchworkpaws</i></a>
+
+<a href="https://github.com/Primordialwater"></i>primordialwater</i></a> < thank you for being an amazing friend and bringing me company! - anon
