@@ -150,7 +150,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/demonofiight"></i>demonofiight</i></a> <a href="https://github.com/scottishtwinegines"></i>scottishwinegines</i></a> <a href="https://github.com/thelasttwilight"></i>thelasttwilight</i></a> < i really adore them as my group! even days through silence, i still talk to them. - <a href="https://github.com/aetherparadise"></i>aetherparadise</i></a>
 
-<a href="https://github.com/krultepes"></i>krultepes</i></a> < we havent spoken for a while, but i love you very much and im glad that youre there for me! - <a href="https://github.com/wolfcutiee"></i>wolfcutiee</i></a>
+<a href="https://github.com/kruItepes"></i>krultepes</i></a> < we havent spoken for a while, but i love you very much and im glad that youre there for me! - <a href="https://github.com/wolfcutiee"></i>wolfcutiee</i></a>
 
 <a href="https://github.com/V4MPZNF4NGZ"></i>v4mpznf4ngz</i></a> < thank you for everything youve done for me and i love you very much! - <a href="https://github.com/wolfcutiee"></i>wolfcutiee</i></a>
 
