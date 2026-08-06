@@ -165,3 +165,5 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/zyarverse"></i>zyarverse</i></a> <a href="https://github.com/paworeo"></i>paworeo</i></a> <a href="https://github.com/snowyferns"></i>snowyferns</i></a> <a href="https://github.com/CONEXIONN"></i>conexionn</i></a> < weve been friends for so long! you guys make my days brighter and i love you guys by heart. - <a href="https://github.com/IHASAFACE-LULZ"></i>ihasaface-lulz</i></a>
 
 <a href="https://github.com/bluevxmpire"></i>bluevxmpire</i></a> <a href="https://github.com/vampyrumspectrum"></i>vampyrumspectrum</i></a> < best/amazing duo!
+
+<a href="https://github.com/avenueq"></i>avenueq</i></a> < you are the most energetic and fun person to talk to, youre always so positive and amazing! - <a href="https://github.com/N1TEB0I"></i>n1teb0i</i></a>
