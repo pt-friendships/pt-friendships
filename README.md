@@ -30,7 +30,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/gamblersi"></i>gamblersi</i></a> <a href="https://github.com/uictim"></i>uictim</i></a> < the royalduo!
 
-<a href="https://github.com/Acid-batz"></i>Acid-batz</i></a> <a href="https://github.com/eggypancake1"></i>eggypancake1</i></a> <a href="https://github.com/misforntunes-s"></i>misfortunes-s</i></a> < you guys are very funny, we got very close by a short time and you all are the coolest ever! love you guys platonically - <a href="https://github.com/N1TEB0I"></i>N1TEB0I</i></a>
+<a href="https://github.com/Acid-batz"></i>Acid-batz</i></a> <a href="https://github.com/eggypancake1"></i>eggypancake1</i></a> <a href="https://github.com/misfortunes-s"></i>misfortunes-s</i></a> < you guys are very funny, we got very close by a short time and you all are the coolest ever! love you guys platonically - <a href="https://github.com/N1TEB0I"></i>N1TEB0I</i></a>
 
 <a href="https://github.com/sorbetflakes"></i>sorbetflakes</i></a> < your best friend of 6 years thinks youre a wonderful friend, you have good jokes and is a fun person to go adventures with!
 
