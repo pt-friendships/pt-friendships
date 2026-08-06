@@ -178,4 +178,10 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/devimccallion"></i>devimccallion</i></a> < thank you for alwways being so kind, anytime we hang out you make me so happy! - <a href="https://github.com/funk4punks"></i>funk4punks</i></a> 
 
+<a href="https://github.com/N1TEB0I"></i>n1teb0i</i></a> < ive gotten closer with you, you are so funny and i love spending time with you! - <a href="https://github.com/Acid-batz"></i>acid-batz</i></a> 
+
+<a href="https://github.com/frikisenpai69"></i>frikisenpai69</i></a> <a href="https://github.com/xeijirou"></i>xeijirou</i></a> < you guys are the few people i felt close with, stay awesome! - anon
+
+<a href="https://github.com/kunakunah"></i>kunakunah</i></a> <a href="https://github.com/vatrinyasin"></i>vatrinyasin</i></a> <a href="https://github.com/ramudaa"></i>ramudaa</i></a> <a href="https://github.com/ENUMAELlSH"></i>enumaelish</i></a> <a href="https://github.com/ch3shyre"></i>ch3shyre</i></a> <a href="https://github.com/bastetngeb"></i>bastetngeb</i></a> <a href="https://github.com/Acid-batz"></i>acid-batz</i></a> <a href="https://github.com/shxrkyxio"></i>shxrkyxio</i></a> <a href="https://github.com/OLD-D0LL"></i>old-d0ll</i></a> <a href="https://github.com/juxtaposition13"></i>juxtaposition13</i></a> <a href="https://github.com/Lxnkzz"></i>lxnkzz</i></a> <a href="https://github.com/ESSH-DiamondGold"></i>essh-diamondgold</i></a> < the kunalings!
+
 fingers are in pain but its really worth it -w-
