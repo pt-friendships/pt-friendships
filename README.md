@@ -52,7 +52,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/pastellcloudyy"></i>pastellcloudyy</i></a> <a href="https://github.com/elysialing"></i>elysialing</i></a> <a href="https://github.com/viimsey"></i>viimsey</i></a> <a href="https://github.com/dopamine-ofdawn"></i>dopamine-ofdawn</i></a> <a href="https://github.com/earl-grey-mp4"></i>earl-grey-mp4</i></a> <a href="https://github.com/zephyrclysm"></i>zephyrclysm</i></a> <a href="https://github.com/dr-vanta"></i>dr-vanta</i></a> < really peak and everyone is best friends!
 
-<a href="https://github.com/misfortunes-s"></i>misfortunes-s</i></a> <a href="https://github.com/xathetic"></i>xathetic</i></a> <a href="https://github.com/mortalpain"></i>mortalpain</i></a> <a href="https://github.com/cryptic-veil"></i>cryptic-veil</i></a> <a href="https://github.com/HYP3RBREAK"></i>HYP3RBREAK</i></a> <a href="https://github.com/giggle-mut"></i>giggle-mut</i></a> <a href="https://github.com/martinvously"></i>martinvously</i></a> <a href="https://github.com/brittlestars"></i>brittlestars</i></a> < amazing friendgroup!
+<a href="https://github.com/xathetic"></i>xathetic</i></a> <a href="https://github.com/mortalpain"></i>mortalpain</i></a> <a href="https://github.com/cryptic-veil"></i>cryptic-veil</i></a> <a href="https://github.com/HYP3RBREAK"></i>HYP3RBREAK</i></a> <a href="https://github.com/giggle-mut"></i>giggle-mut</i></a> <a href="https://github.com/martinvously"></i>martinvously</i></a> <a href="https://github.com/brittlestars"></i>brittlestars</i></a> < main friends of mine! - <a href="https://github.com/misfortunes-s"></i>misfortunes-s</i></a>
 
 <a href="https://github.com/therealcastiel"></i>therealcastiel</i></a> <a href="https://github.com/thefleshcurtains"></i>theflushcurtains</i></a> <a href="https://github.com/NERDPROJECT"></i>nerdproject</i></a> < the team-free-will trio!
 
@@ -128,7 +128,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/CloveredFields"></i>cloveredfields</i></a> <a href="https://github.com/PlanetFields"></i>qnakin</i></a> <a href="https://github.com/Solardrsapph"></i>Solardrsapph</i></a> < amazing trio!
 
-<a href="https://github.com/t0rntodescent"></i>t0rntodescent</i></a> <a href="https://github.com/phainonirl"></i>phainonirl</i></a> < amazing duo!
+<a href="https://github.com/t0rntodescent"></i>t0rntodescent</i></a> <a href="https://github.com/phainonirl"></i>phainonirl</i></a> <a href="https://github.com/HitomiAndSanemiLover"></i>hitomiandsanemilover</i></a> <a href="https://github.com/sunnegisel"></i>sunnegisel</i></a> < stupid squad group!
 
 <a href="https://github.com/Tordplushie"></i>tordplushie</i></a> <a href="https://github.com/MASQUERADE-PARTY"></i>masquerade-party</i></a> <a href="https://github.com/Pixelbrickz"></i>pixelbrickz</i></a> < amazing trio!
 
@@ -149,3 +149,19 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/T0R4X"></i>t0r4x</i></a> <a href="https://github.com/SwanSorrow"></i>swansorrow</i></a> <a href="https://github.com/AngelicDeceit"></i>angelicdeceit</i></a> <a href="https://github.com/ChimoryX"></i>chimoryx</i></a> <a href="https://github.com/Eun0i4Xd"></i>eunn0i4xd</i></a> <a href="https://github.com/rainyourday"></i>rainyourday</i></a> < the six abnormal phenomenal anomalies friendgroup!
 
 <a href="https://github.com/demonofiight"></i>demonofiight</i></a> <a href="https://github.com/scottishtwinegines"></i>scottishwinegines</i></a> <a href="https://github.com/thelasttwilight"></i>thelasttwilight</i></a> < i really adore them as my group! even days through silence, i still talk to them. - <a href="https://github.com/aetherparadise"></i>aetherparadise</i></a>
+
+<a href="https://github.com/krultepes"></i>krultepes</i></a> < we havent spoken for a while, but i love you very much and im glad that youre there for me! - <a href="https://github.com/wolfcutiee"></i>wolfcutiee</i></a>
+
+<a href="https://github.com/V4MPZNF4NGZ"></i>v4mpznf4ngz</i></a> < thank you for everything youve done for me and i love you very much! - <a href="https://github.com/wolfcutiee"></i>wolfcutiee</i></a>
+
+<a href="https://github.com/NorthernShine"></i>northernshine</i></a> < youre the best friend i could ever ask for, thank you for being there for me through everything! i love you deeply much. - <a href="https://github.com/AshesOfHerHalo"></i>ashesofherhalo</i></a>
+
+<a href="https://github.com/kyuparin"></i>kyuparin</i></a> < theyre so frickin cool. - <a href="https://github.com/gambling-addict"></i>gambling-addict</i></a>
+
+<a href="https://github.com/Pale-Garden"></i>pale-garden</i></a> < i love you so much, and im looking forward to seeing you because youre amazing! - <a href="https://github.com/myentropyduo"></i>myentropyduo</i></a>
+
+<a href="https://github.com/DEBHVERIFIED"></i>debhverified</i></a> <a href="https://github.com/STREETY-STREET"></i>streety-street</i></a> <a href="https://github.com/Polkaca"></i>polkaca</i></a> < sunset trio!
+
+<a href="https://github.com/zyarverse"></i>zyarverse</i></a> <a href="https://github.com/paworeo"></i>paworeo</i></a> <a href="https://github.com/snowyferns"></i>snowyferns</i></a> <a href="https://github.com/CONEXIONN"></i>conexionn</i></a> < weve been friends for so long! you guys make my days brighter and i love you guys by heart. - <a href="https://github.com/IHASAFACE-LULZ"></i>ihasaface-lulz</i></a>
+
+<a href="https://github.com/bluevxmpire"></i>bluevxmpire</i></a> <a href="https://github.com/vampyrumspectrum"></i>vampyrumspectrum</i></a> < best/amazing duo!
