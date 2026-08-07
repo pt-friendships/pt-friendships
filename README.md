@@ -206,4 +206,8 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/saps4flux"></i>saps4flux</i></a> <a href="https://github.com/housepanther"></i>housepanther</i></a> < hello to my favourite voidjumper and partykiller!
 
+<a href="https://github.com/emmmzi"></i>emmmzi</i></a> <a href="https://github.com/3uphoriclove"></i>3uphoriclove</i></a> < i love you both! - <a href="https://github.com/SUGERPUNK"></i>sugerpunk</i></a>
+
+<a href="https://github.com/veloury"></i>veloury</i></a> < youre a bum in a good way! - <a href="https://github.com/SUGERPUNK"></i>sugerpunk</i></a>
+
 fingers are in pain but its really worth it!
