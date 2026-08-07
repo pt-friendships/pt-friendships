@@ -188,9 +188,9 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/sebvsene"></i>sebvsene</i></a> <a href="https://github.com/lilsweeterlilbitter"></i>lilsweeterlilbitter</i></a> <a href="https://github.com/Lemonyada"></i>lemonyada</i></a> <a href="https://github.com/aeszz"></i>aeszz</i></a> < you guys made my year and i love you guys! same goes to the others. - anon
 
-<a href="https://github.com/1-800-PAPU"></i>1-800-papu</i></a> <a href="https://github.com/cellbito"></i>cellbito</i></a> < you guys are the best people a person like me can ever ask for! - <a href="https://github.com/pixstrs"></i>pixstrs</i></a>
+<a href="https://github.com/01-800-PAPU"></i>01-800-papu</i></a> <a href="https://github.com/cellbito"></i>cellbito</i></a> < you guys are the best people a person like me can ever ask for! - <a href="https://github.com/pixstrs"></i>pixstrs</i></a>
 
-<a href="https://github.com/1-800-PAPU"></i>1-800-papu</i></a> <a href="https://github.com/cellbito"></i>cellbito</i></a> <a href="https://github.com/motorwaygirl"></i>motorwaygirl</i></a> <a href="https://github.com/garferss"></i>garferss</i></a> <a href="https://github.com/Mizziepoms"></i>mizziepoms</i></a> <a href="https://github.com/Belovedz"></i>belovedz</i></a> <a href="https://github.com/butchermask"></i>butchermask</i></a> <a href="https://github.com/solroses"></i>solroses</i></a> < thank you for being the nicest people ever! i enjoy interacting with you guys. - <a href="https://github.com/pixstrs"></i>pixstrs</i></a> 
+<a href="https://github.com/01-800-PAPU"></i>01-800-papu</i></a> <a href="https://github.com/cellbito"></i>cellbito</i></a> <a href="https://github.com/motorwaygirl"></i>motorwaygirl</i></a> <a href="https://github.com/garferss"></i>garferss</i></a> <a href="https://github.com/Mizziepoms"></i>mizziepoms</i></a> <a href="https://github.com/Belovedz"></i>belovedz</i></a> <a href="https://github.com/butchermask"></i>butchermask</i></a> <a href="https://github.com/solroses"></i>solroses</i></a> < thank you for being the nicest people ever! i enjoy interacting with you guys. - <a href="https://github.com/pixstrs"></i>pixstrs</i></a> 
 
 **VD server** < thank you guys for accepting me in your group! you guys are amazing. love yall!
 
