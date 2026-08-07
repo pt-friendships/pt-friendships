@@ -202,7 +202,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/yumeprince"></i>yumeprince</i></a> < you make every convo and game so enjoyable and fun!
 
-<a href="https://github.com/saps4flux"></i>saps4flux</i></a> <a href="https://github.com/generixal"></i>generixal</i></a> < my favorite duo 5ever! lets always duofarm oke! :-)
+<a href="https://github.com/saps4flux"></i>saps4flux</i></a> <a href="https://github.com/generixal"></i>generixal</i></a> < my favorite duo 5ever! lets always duofarm oke! :-) P/D duo!
 
 <a href="https://github.com/saps4flux"></i>saps4flux</i></a> <a href="https://github.com/housepanther"></i>housepanther</i></a> < hello to my favourite voidjumper and partykiller! bing!
 
