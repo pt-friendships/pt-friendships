@@ -202,4 +202,4 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/yumeprince"></i>yumeprince</i></a> < you make every convo and game so enjoyable and fun! - flowery/chara
 
-fingers are in pain but its really worth it -w-
+fingers are in pain but its really worth it!
