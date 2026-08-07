@@ -200,6 +200,6 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/ccggmadness"></i>ccggmadness</i></a> <a href="https://github.com/ssamuchae"></i>ssamuchae</i></a> Yeva < Bdaycake trio!
 
-<a href="https://github.com/yumeprince"></i>yumeprince</i></a> < you make every convo and game so enjoyable and fun! - flowery/chara
+<a href="https://github.com/yumeprince"></i>yumeprince</i></a> < you make every convo and game so enjoyable and fun!
 
 fingers are in pain but its really worth it!
