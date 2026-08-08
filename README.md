@@ -138,7 +138,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/getjinx3d"></i>getjinx3d</i></a> < you are the best girlfriend ive ever had! you are amazingly talented and great at everything - partner
 
-<a href="https://github.com/infernalcrisis"></i>infernalcrisis</i></a> < thank you for staying with me til now! im very grateful. - anon
+<a href="https://github.com/infernalcrisis"></i>infernalcrisis</i></a> < thank you for staying with me til now! im very grateful. - <a href="https://github.com/fou11egacy"></i>fou11gacy</i></a> 
 
 <a href="https://github.com/bludhavenn"></i>bludhavenn</i></a> <a href="https://github.com/cazirus"></i>zephyrclysm</i></a> < thank you for being my friends! < #halisqueer
 
@@ -178,7 +178,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/frikisenpai69"></i>frikisenpai69</i></a> <a href="https://github.com/xeijirou"></i>xeijirou</i></a> < you guys are the few people i felt close with, stay awesome! - anon
 
-<a href="https://github.com/kunakunah"></i>kunakunah</i></a> <a href="https://github.com/vatrinyasin"></i>vatrinyasin</i></a> <a href="https://github.com/ramudaa"></i>ramudaa</i></a> <a href="https://github.com/ENUMAELlSH"></i>enumaelish</i></a> <a href="https://github.com/ch3shyre"></i>ch3shyre</i></a> <a href="https://github.com/bastetngeb"></i>bastetngeb</i></a> <a href="https://github.com/Acid-batz"></i>acid-batz</i></a> <a href="https://github.com/shxrkyxio"></i>shxrkyxio</i></a> <a href="https://github.com/OLD-D0LL"></i>old-d0ll</i></a> <a href="https://github.com/juxtaposition13"></i>juxtaposition13</i></a> <a href="https://github.com/Lxnkzz"></i>lxnkzz</i></a> <a href="https://github.com/ESSH-DiamonGold"></i>essh-diamongold</i></a> <a href="https://github.com/weltita"></i>weltita</i></a> < the kunalings!
+<a href="https://github.com/kunakunah"></i>kunakunah</i></a> <a href="https://github.com/vatrinyasin"></i>vatrinyasin</i></a> <a href="https://github.com/ramudaa"></i>ramudaa</i></a> <a href="https://github.com/ENUMAELlSH"></i>enumaelish</i></a> <a href="https://github.com/ch3shyre"></i>ch3shyre</i></a> <a href="https://github.com/bastetngeb"></i>bastetngeb</i></a> <a href="https://github.com/Acid-batz"></i>acid-batz</i></a> <a href="https://github.com/shxrkyxio"></i>shxrkyxio</i></a> <a href="https://github.com/OLD-D0LL"></i>old-d0ll</i></a> <a href="https://github.com/WAR-HeavenPierceHer"></i>war-heavenpierceher</i></a> <a href="https://github.com/Lxnkzz"></i>lxnkzz</i></a> <a href="https://github.com/ESSH-DiamonGold"></i>essh-diamongold</i></a> <a href="https://github.com/weltita"></i>weltita</i></a> < the kunalings!
 
 <a href="https://github.com/dragonplays-forsaken"></i>dragonplays-forsaken</i></a> <a href="https://github.com/ravensev"></i>ravensev</i></a> < awesome duo!
 
@@ -209,5 +209,19 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/emmmzi"></i>emmmzi</i></a> <a href="https://github.com/3uphoriclove"></i>3uphoriclove</i></a> < i love you both! - <a href="https://github.com/SUGERPUNK"></i>sugerpunk</i></a>
 
 <a href="https://github.com/veloury"></i>veloury</i></a> < youre a bum in a good way! - <a href="https://github.com/SUGERPUNK"></i>sugerpunk</i></a>
+
+<a href="https://github.com/mydad-is-myhero"></i>mydad-is-myhero</i></a> < you are so dear to me, i love you so much! - mosquito
+
+<a href="https://github.com/puppiedawg"></i>puppiedawg</i></a> < even though youre so freaky, youre still one of my favs! love you very much. - <a href="https://github.com/spam-tune"></i>spam-tune</i></a> 
+
+<a href="https://github.com/mattsAdork"></i>mattsadork</i></a> < hey best buddy! you mean so much to me, i love you and im glad we met! - <a href="https://github.com/shagadelicious></i>shagadelicious</i></a> 
+
+<a href="https://github.com/groxling"></i>groxling</i></a> <a href="https://github.com/vistaparadox"></i>vistaparadox</i></a> < we are the real catfight duo! the literal goats!!
+
+<a href="https://github.com/duowithme"></i>duowithme</i></a> <a href="https://github.com/vistaparadox"></i>vistaparadox</i></a> < we are the lunaticduo!
+
+<a href="https://github.com/wickedirene"></i>wickedirene</i></a> < thank you for the best four years of my life, we are the real laborduo! - <a href="https://github.com/vistaparadox"></i>vistaparadox</i></a>
+
+<a href="https://github.com/pwncree"></i>pwncree</i></a> < i love spending time with you! everytime i see you chat with me brightens up my day. - <a href="https://github.com/tragicomedyy"></i>tragicomedyy</i></a> 
 
 fingers are in pain but its really worth it!
