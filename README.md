@@ -48,7 +48,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/HYP3RBREAK"></i>HYP3RBREAK</i></a> < hey friend! i hope you know that youre fun to hang out with - anon
 
-<a href="https://github.com/pastellcloudyy"></i>pastellcloudyy</i></a> <a href="https://github.com/elysiaIing"></i>elysialing</i></a> <a href="https://github.com/viimsey"></i>viimsey</i></a> <a href="https://github.com/dopamine-ofdawn"></i>dopamine-ofdawn</i></a> <a href="https://github.com/earl-grey-mp4"></i>earl-grey-mp4</i></a> <a href="https://github.com/zephyrclysm"></i>zephyrclysm</i></a> <a href="https://github.com/dr-vanta"></i>dr-vanta</i></a> < really peak and everyone is best friends!
+<a href="https://github.com/pastellcloudyy"></i>pastellcloudyy</i></a> <a href="https://github.com/star-employee"></i>star-employee</i></a> <a href="https://github.com/viimsey"></i>viimsey</i></a> <a href="https://github.com/dopamine-ofdawn"></i>dopamine-ofdawn</i></a> <a href="https://github.com/earl-grey-mp4"></i>earl-grey-mp4</i></a> <a href="https://github.com/zephyrclysm"></i>zephyrclysm</i></a> <a href="https://github.com/dr-vanta"></i>dr-vanta</i></a> < really peak and everyone is best friends!
 
 <a href="https://github.com/xathetic"></i>xathetic</i></a> <a href="https://github.com/mortalpain"></i>mortalpain</i></a> <a href="https://github.com/cryptic-veil"></i>cryptic-veil</i></a> <a href="https://github.com/HYP3RBREAK"></i>HYP3RBREAK</i></a> <a href="https://github.com/giggle-mut"></i>giggle-mut</i></a> <a href="https://github.com/martinvously"></i>martinvously</i></a> <a href="https://github.com/brittlestars"></i>brittlestars</i></a> < main friends of mine! - <a href="https://github.com/misfortunes-s"></i>misfortunes-s</i></a>
 
@@ -223,5 +223,13 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/wickedirene"></i>wickedirene</i></a> < thank you for the best four years of my life, we are the real laborduo! - <a href="https://github.com/vistaparadox"></i>vistaparadox</i></a>
 
 <a href="https://github.com/pwncree"></i>pwncree</i></a> < i love spending time with you! everytime i see you chat with me brightens up my day. - <a href="https://github.com/tragicomedyy"></i>tragicomedyy</i></a> 
+
+<a href="https://github.com/GHOSTBUSTERS-SFX"></i>ghostbusters-sfx</i></a> < i really enjoy spending time with you, youre one of my best mates ever! - <a href="https://github.com/Heart0fGold"></i>heart0fgold</i></a>
+
+<a href="https://github.com/N0ISEMAKER"></i>N0ISEMAKER</i></a> <a href="https://github.com/lovingl3tters"></i>lovingl3tters</i></a> Cole < you guys are my special quadro! you silly three make me very happy. - <a href="https://github.com/weepinglilies"></i>weepinlilies</i></a> (the wait-cole gc)
+
+<a href="https://github.com/samuraswife"></i>samuraswife</i></a> <a href="https://github.com/xatheic"></i>xatheic</i></a> <a href="https://github.com/wishingangel"></i>wishingangel</i></a> <a href="https://github.com/outcomemems"></i>outcomemems</i></a> <a href="https://github.com/w0rmdoctorr"></i>w0rmdoctorr</i></a> <a href="https://github.com/feralfrenzyy"></i>feralfrenzyy</i></a> <a href="https://github.com/hannathehamburger"></i>hannathehamburger</i></a> < you guys are the best and funniest people ive ever met! - anon
+
+<a href="https://github.com/GraveyardOfStars"></i>graveyardofstars</i></a> < youre the best boyfriend ever! i love you so much! < <a href="https://github.com/MrNovalite"></i>mrnovalite</i></a> 
 
 fingers are in pain but its really worth it!
