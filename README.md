@@ -214,7 +214,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/puppiedawg"></i>puppiedawg</i></a> < even though youre so freaky, youre still one of my favs! love you very much. - <a href="https://github.com/spam-tune"></i>spam-tune</i></a> 
 
-<a href="https://github.com/mattsAdork"></i>mattsadork</i></a> < hey best buddy! you mean so much to me, i love you and im glad we met! - <a href="https://github.com/shagadelicious></i>shagadelicious</i></a> 
+<a href="https://github.com/mattsAdork"></i>mattsadork</i></a> < hey best buddy! you mean so much to me, i love you and im glad we met! - <a href="https://github.com/shagadelicious"></i>shagadelicious</i></a> 
 
 <a href="https://github.com/groxling"></i>groxling</i></a> <a href="https://github.com/vistaparadox"></i>vistaparadox</i></a> < we are the real catfight duo! the literal goats!!
 
