@@ -76,7 +76,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/wolfcutiee"></i>wolfcutiee</i></a> <a href="https://github.com/yellowdeltarune"></i>yellowdeltarune</i></a> < siblings that loves spending time together! makes each others very happy
 
-<a href="https://github.com/piehker"></i>piehker</i></a> <a href="https://github.com/yvoisen"></i>yvoisen</i></a> <a href="https://github.com/6ullets"></i>6ullets</i></a> < the TMC trio!
+<a href="https://github.com/piehker"></i>piehker</i></a> <a href="https://github.com/yvoisen"></i>yvoisen</i></a> <a href="https://github.com/6ullets"></i>6ullets</i></a> < the PMC trio!
 
 <a href="https://github.com/Mizziepoms"></i>mizziepoms</i></a> <a href="https://github.com/garferss"></i>garferss</i></a> <a href="https://github.com/motorwaygirl"></i>motorwaygirl</i></a> < i love you all three as older sisters! you guys are absolutely amazing. - <a href="https://github.com/01-800-PAPU"></i>01-800-papu</i></a>
 
@@ -228,8 +228,26 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/N0ISEMAKER"></i>N0ISEMAKER</i></a> <a href="https://github.com/lovingl3tters"></i>lovingl3tters</i></a> Cole < you guys are my special quadro! you silly three make me very happy. - <a href="https://github.com/weepinglilies"></i>weepinlilies</i></a> (the wait-cole gc)
 
-<a href="https://github.com/samuraswife"></i>samuraswife</i></a> <a href="https://github.com/xatheic"></i>xatheic</i></a> <a href="https://github.com/wishingangel"></i>wishingangel</i></a> <a href="https://github.com/outcomemems"></i>outcomemems</i></a> <a href="https://github.com/w0rmdoctorr"></i>w0rmdoctorr</i></a> <a href="https://github.com/feralfrenzyy"></i>feralfrenzyy</i></a> <a href="https://github.com/hannathehamburger"></i>hannathehamburger</i></a> < you guys are the best and funniest people ive ever met! - anon
+<a href="https://github.com/samuraswife"></i>samuraswife</i></a> <a href="https://github.com/xatheic"></i>xatheic</i></a> <a href="https://github.com/wishingangel"></i>wishingangel</i></a> <a href="https://github.com/outcomemems"></i>outcomemems</i></a> <a href="https://github.com/w0rmdoctorr"></i>w0rmdoctorr</i></a> <a href="https://github.com/feralfrenzyy"></i>feralfrenzyy</i></a> <a href="https://github.com/hannathehamburger"></i>hannathehamburger</i></a> < you guys are the best and funniest people ive ever met! - <a href="https://github.com/DlSASTEROLOGY"></i>dlsasterlogy</i></a> 
 
 <a href="https://github.com/GraveyardOfStars"></i>graveyardofstars</i></a> < youre the best boyfriend ever! i love you so much! < <a href="https://github.com/MrNovalite"></i>mrnovalite</i></a> 
+
+<a href="https://github.com/aphweegif"></i>aphweegif</i></a> <a href="https://github.com/ajthepeach"></i>ajthepeach</i></a> <a href="https://github.com/elizavetahedervary"></i>elizavetahedervary</i></a> <a href="https://github.com/cloudkittys"></i>cloudkittys</i></a> < i love you all so much, thank you for being my best friends ever! - dearest brother francis
+
+<a href="https://github.com/Mayumixx"></i>mayumixx</i></a> <a href="https://github.com/ATHEISTIC-SATANISM"></i>atheistic-satanism</i></a> < amazing duo!
+
+<a href="https://github.com/JADE3E"></i>jade3e</i></a> (Alex Albon) <a href="https://github.com/whirllybirdv"></i>whirllybirdv</i></a> (Lando Norris) <a href="https://github.com/emmmzi"></i>emmmzi</i></a> (George Russell) < 2019 F1 rookies!
+
+<a href="https://github.com/wallyvstheworld"></i>wallyvstheworld</i></a> < you are the bestest online brother ever! you stayed with me even through my 'annoying' phase! - <a href="https://github.com/cemetriiez"></i>cemetriiez</i></a> 
+
+<a href="https://github.com/black-sh33p"></i>black-sh33p</i></a> < youre the best sister i could ever ask for, i know we're not siblings by blood but you are like my family! - <a href="https://github.com/dol9hinn"></i>dol9hinn</i></a> 
+
+<a href="https://github.com/SUGERPUNK"></i>sugerpunk</i></a> < i love you too! thank you so much for being my friend for almost 2 years now! - <a href="https://github.com/emmmzi"></i>emmmzi</i></a> 
+
+<a href="https://github.com/5orrows"></i>5orrows</i></a> <a href="https://github.com/sleepyroseee"></i>sleepyroseee</i></a> < best siblings duo!
+
+<a href="https://github.com/2emorse"></i>2emorse</i></a> Nuke club gc < i love you guys so much! being with you guys means the world to me and id never want to leave. - anon
+
+<a href="https://github.com/userrrxDDD"></i>userrrxDDD</i></a> <a href="https://github.com/Blossoming-Truth"></i>blossoming-truth</i></a> < i love you guys so much platonically! - anon
 
 fingers are in pain but its really worth it!
