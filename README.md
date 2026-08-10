@@ -250,4 +250,12 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/userrrxDDD"></i>userrrxDDD</i></a> <a href="https://github.com/Blossoming-Truth"></i>blossoming-truth</i></a> < i love you guys so much platonically! - anon
 
+<a href="https://github.com/HOMESlCK"></i>homeslck</i></a> <a href="https://github.com/OLD-D0LL"></i>old-d0ll</i></a> <a href="https://github.com/overioaded"></i>overioaded</i></a> <a href="https://github.com/ksnginene"></i>ksnginene</i></a> < senpais of ponytown!
+
+<a href="https://github.com/salamiimeow"></i>salamiimeow</i></a> < youre a very close friend of mine and youre dear to me! - anon
+
+<a href="https://github.com/hntrrc4ts"></i>hntrrc4ts</i></a> < you are my everything, my duo in every universe! i love you with my whole heart and soul. - <a href="https://github.com/eyewearing"></i>eyewearing</i></a> 
+
+<a href="https://github.com/samuraswife"></i>samuraswife</i></a> < youre selfless for your own good, we love you for being there when needed!
+
 fingers are in pain but its really worth it!
