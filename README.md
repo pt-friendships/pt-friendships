@@ -252,10 +252,20 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/HOMESlCK"></i>homeslck</i></a> <a href="https://github.com/OLD-D0LL"></i>old-d0ll</i></a> <a href="https://github.com/overioaded"></i>overioaded</i></a> <a href="https://github.com/ksnginene"></i>ksnginene</i></a> < senpais of ponytown!
 
-<a href="https://github.com/salamiimeow"></i>salamiimeow</i></a> < youre a very close friend of mine and youre dear to me! - anon
+<a href="https://github.com/salamiimeow"></i>salamiimeow</i></a> < youre a very close friend of mine and youre dear to me! - <a href="https://github.com/demonbell3"></i>demonbell3</i></a> 
 
 <a href="https://github.com/hntrrc4ts"></i>hntrrc4ts</i></a> < you are my everything, my duo in every universe! i love you with my whole heart and soul. - <a href="https://github.com/eyewearing"></i>eyewearing</i></a> 
 
 <a href="https://github.com/samuraswife"></i>samuraswife</i></a> < youre selfless for your own good, we love you for being there when needed!
+
+<a href="https://github.com/glitterhell"></i>glitterhell</i></a> <a href="https://github.com/shiinonome"></i>shiinonome</i></a> <a href="https://github.com/ReplicaOfAffection"></i>replicaofaffection</i></a> < super smart yet stupid trio! Replica loves you two!
+
+<a href="https://github.com/Fashlon"></i>fashlon</i></a> <a href="https://github.com/Naibluver"></i>naibluver</i></a> <a href="https://github.com/DASElN"></i>daseln</i></a> <a href="https://github.com/Venzqs"></i>venzqs</i></a> 
+
+<a href="https://github.com/Mayumixx"></i>mayumixx</i></a> <a href="https://github.com/ATHEISTIC-SATANISM"></i>atheistic-satanism</i></a> <a href="https://github.com/Mimikinsz"></i>mimikinsz</i></a> < ultimate trio three! you guys are really loved.
+
+<a href="https://github.com/methodreal"></i>methodreal</i></a> < im glad that we are friends, i am also glad that you are recovering from everything! we are 67duo forever. - <a href="https://github.com/germanstare"></i>germanstare</i></a>
+
+<a href="https://github.com/newskun"></i>newskun</i></a> <a href="https://github.com/angeIist"></i>angeIist</i></a> < the wintershades duo!
 
 fingers are in pain but its really worth it!
