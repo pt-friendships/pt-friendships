@@ -8,7 +8,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 # <a href="https://friendingeveryonehi.straw.page/"></i>strawpage to request!</i>
 
-<a href="https://github.com/yuriclown"></i>yuriclown</i></a> <a href="https://github.com/N1TEB0I"></i>n1teb0i</i></a> <a href="https://github.com/heathvcliff"></i>heathvcliff</i></a> <a href="https://github.com/jia-baoyu"></i>jia-baoyu</i></a> <a href="https://github.com/R0K1RA"></i>r0k1ra</i></a> < the bestest friends of fat gc!
+<a href="https://github.com/yuriclown"></i>yuriclown</i></a> <a href="https://github.com/N1TEB0I"></i>n1teb0i</i></a> <a href="https://github.com/heathvcliff"></i>heathvcliff</i></a> <a href="https://github.com/jia-baoyu"></i>jia-baoyu</i></a> < the bestest friends of fat gc!
 
 <a href="https://github.com/beauty-clown"></i>beauty-clown</i></a> < Even if we barely share any same fandoms, i still enjoy sitting and spending time with you! youre super cool. - <a href="https://github.com/planetlordd"></i>planetlordd</i>
 
@@ -34,7 +34,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/sorbetflakes"></i>sorbetflakes</i></a> < your best friend of 6 years thinks youre a wonderful friend, you have good jokes and is a fun person to go adventures with!
 
-<a href="https://github.com/pupmikaw"></i>pupmikaw</i></a> <a href="https://github.com/the-seance"></i>the-seance</i></a> <a href="https://github.com/littlemissunshine"></i>littlemissunshine</i></a> < I love spending time with you, i love you very much and we always hang out in pony town! (pupmikaw) i love my two best friends too, adore them very much!
+<a href="https://github.com/pupmikaw"></i>pupmikaw</i></a> <a href="https://github.com/the-seance"></i>the-seance</i></a> <a href="https://github.com/littlemissunshine"></i>littlemissunshine</i></a> <a href="https://github.com/pupkang"></i>pupkang</i></a> < I love spending time with you, i love you very much and we always hang out in pony town! (pupmikaw) i love my three best friends too, adore them very much!
 
 <a href="https://github.com/tragiceye"></i>tragiceye</i></a> <a href="https://github.com/tragicburn"></i>tragicburn</i></a> < amazing duo!
 
@@ -224,7 +224,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/pwncree"></i>pwncree</i></a> < i love spending time with you! everytime i see you chat with me brightens up my day. - <a href="https://github.com/tragicomedyy"></i>tragicomedyy</i></a> 
 
-<a href="https://github.com/GHOSTBUSTERS-SFX"></i>ghostbusters-sfx</i></a> < i really enjoy spending time with you, youre one of my best mates ever! - <a href="https://github.com/Heart0fGold"></i>heart0fgold</i></a>
+<a href="https://github.com/Ham-milton"></i>ham-milton</i></a> < i really enjoy spending time with you, youre one of my best mates ever! - <a href="https://github.com/Heart0fGold"></i>heart0fgold</i></a>
 
 <a href="https://github.com/N0ISEMAKER"></i>N0ISEMAKER</i></a> <a href="https://github.com/lovingl3tters"></i>lovingl3tters</i></a> Cole < you guys are my special quadro! you silly three make me very happy. - <a href="https://github.com/weepinglilies"></i>weepinlilies</i></a> (the wait-cole gc)
 
@@ -267,5 +267,23 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/methodreal"></i>methodreal</i></a> < im glad that we are friends, i am also glad that you are recovering from everything! we are 67duo forever. - <a href="https://github.com/germanstare"></i>germanstare</i></a>
 
 <a href="https://github.com/newskun"></i>newskun</i></a> <a href="https://github.com/angeIist"></i>angeIist</i></a> < the wintershades duo!
+
+<a href="https://github.com/cowpokke"></i>cowpokke</i></a> <a href="https://github.com/angeIshot"></i>angeIshot</i></a> <a href="https://github.com/excessivedeath"></i>excessivedeath</i></a> <a href="https://github.com/HARRlNGTON"></i>harrlngton</i></a> <a href="https://github.com/Bloodymuch"></i>bloodymuch</i></a> <a href="https://github.com/DrunkExorcism"></i>drunkexorcism</i></a> < bunch of losers friendship!
+
+<a href="https://github.com/Ironmary"></i>ironmary</i></a> <a href="https://github.com/tainted-soul"></i>tainted-soul</i></a> <a href="https://github.com/whokilledmarkiplier"></i>whokilledmarkiplier</i></a> < trio of chuds!
+
+<a href="https://github.com/ibispaintarchive"></i>ibispaintarchive</i></a> <a href="https://github.com/charming-xiaomao"></i>charming-xiaomao</i></a> <a href="https://github.com/Iyrical"></i>Iyrical</i></a> < i love these people so much! I wish for us to never stop being friends. - trio
+
+<a href="https://github.com/zemifhhh"></i>zemifhhh</i></a> < youve changed my life for the better, and i cherish every moment i get with you! - <a href="https://github.com/flaskofvodka"></i>flaskofvodka</i></a>
+
+<a href="https://github.com/S0LR-X"></i>s0lr-x</i></a> < thank you for being an amazing and funny friend! - <a href="https://github.com/MEGURINELUKA02"></i>megurineluka02</i></a> 
+
+<a href="https://github.com/puppyfes"></i>puppyfes</i></a> <a href="https://github.com/azpyiel"></i>azpyiel</i></a> <a href="https://github.com/GILLIONTIDERSTRIDER"></i>gilliontidestrider</i></a> < have been children faction club trio for years! + thank you for being with me for quite some time now, we always come back to each other! - <a href="https://github.com/puppyfes"></i>puppyfes</i></a> 
+
+<a href="https://github.com/constrz"></i>constrz</i></a> <a href="https://github.com/REVERISTCALICO"></i>reveristcalico</i></a> <a href="https://github.com/reynanns"></i>reynanns</i></a> < the angels of six seven trio!
+
+<a href="https://github.com/strawbyumeno"></i>strawbyumeno</i></a> <a href="https://github.com/ghostly-sorrows"></i>ghostly-sorrows</i></a> <a href="https://github.com/bastetngeb"></i>bastetngeb</i></a> <a href="https://github.com/angxlpraize"></i>angxlpraize</i></a> < i love you guys youre all so cutieful! - <a href="https://github.com/opioiid"></i>opioiid</i></a>
+
+<a href="https://github.com/freakedoutboy"></i>freakedoutboy</i></a> <a href="https://github.com/cupidzarrow69"></i>cupidzarrow69</i></a> < yall are my favorite idiots fr, never go bald besties! - <a href="https://github.com/disorderlyfashion"></i>disorderlyfashion</i></a>
 
 fingers are in pain but its really worth it!
