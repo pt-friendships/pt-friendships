@@ -52,7 +52,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/xathetic"></i>xathetic</i></a> <a href="https://github.com/mortalpain"></i>mortalpain</i></a> <a href="https://github.com/cryptic-veil"></i>cryptic-veil</i></a> <a href="https://github.com/HYP3RBREAK"></i>HYP3RBREAK</i></a> <a href="https://github.com/giggle-mut"></i>giggle-mut</i></a> <a href="https://github.com/martinvously"></i>martinvously</i></a> <a href="https://github.com/brittlestars"></i>brittlestars</i></a> < main friends of mine! - <a href="https://github.com/misfortunes-s"></i>misfortunes-s</i></a>
 
-<a href="https://github.com/therealcastiel"></i>therealcastiel</i></a> <a href="https://github.com/thefleshcurtains"></i>theflushcurtains</i></a> <a href="https://github.com/NERDPROJECT"></i>nerdproject</i></a> < the team-free-will trio!
+<a href="https://github.com/therealcastiel"></i>therealcastiel</i></a> <a href="https://github.com/thefleshcurtains"></i>thefleshcurtains</i></a> <a href="https://github.com/NERDPROJECT"></i>nerdproject</i></a> < the team-free-will trio!
 
 <a href="https://github.com/Vampxxbi"></i>vampxxbi</i></a> <a href="https://github.com/denguemon"></i>denguemon</i></a> < amazing duo!
 
@@ -100,7 +100,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/yourlovelyscenecoreshayla1111"></i>yourlovelyscenecoreshayla1111</i></a> < I hope we will stay friends forever! - <a href="https://github.com/Z4WARUD0"></i>z4warud0</i></a>
 
-<a href="https://github.com/funk4punks"></i>funk4punks/i></a> < you are my found brother, i am forever grateful for our friendship! - <a href="https://github.com/devimccallion"></i>devimccallion</i></a>
+<a href="https://github.com/funk4punks"></i>funk4punks</i></a> < you are my found brother, i am forever grateful for our friendship! - <a href="https://github.com/devimccallion"></i>devimccallion</i></a>
 
 <a href="https://github.com/myentropyduo"></i>myentropyduo</i></a> < youve been my bestest of friends ive met on pony town. you are empathetic and trustworthy! - <a href="https://github.com/Pale-Garden"></i>pale-garden</i></a>
 
@@ -184,7 +184,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/infugue"></i>infugue</i></a> < youre one of the best people ive met on ponytown, you are kind and so funny! - anon
 
-<a href="https://github.com/sch7rke"></i>sch7rke</i></a> <a href="https://github.com/foodlvr"></i>foodlvr</i></a> <a href="https://github.com/neverwanted2dance"></ineverwanted2dance</i></a> <a href="https://github.com/sw33tsug4rcookie"></i>sw33tsug4rcookie</i></a> < i enjoy hanging out with my friends! i love you guys very much. - <a href="https://github.com/Sproutkin"></i>sproutkin</i></a> 
+<a href="https://github.com/sch7rke"></i>sch7rke</i></a> <a href="https://github.com/foodlvr"></i>foodlvr</i></a> <a href="https://github.com/neverwanted2dance"></i>neverwanted2dance</i></a> <a href="https://github.com/sw33tsug4rcookie"></i>sw33tsug4rcookie</i></a> < i enjoy hanging out with my friends! i love you guys very much. - <a href="https://github.com/Sproutkin"></i>sproutkin</i></a> 
 
 <a href="https://github.com/sebvsene"></i>sebvsene</i></a> <a href="https://github.com/lilsweeterlilbitter"></i>lilsweeterlilbitter</i></a> <a href="https://github.com/Lemonyada"></i>lemonyada</i></a> <a href="https://github.com/aeszz"></i>aeszz</i></a> < you guys made my year and i love you guys! same goes to the others. - anon
 
@@ -260,7 +260,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/glitterhell"></i>glitterhell</i></a> <a href="https://github.com/shiinonome"></i>shiinonome</i></a> <a href="https://github.com/ReplicaOfAffection"></i>replicaofaffection</i></a> < super smart yet stupid trio! Replica loves you two!
 
-<a href="https://github.com/Fashlon"></i>fashlon</i></a> <a href="https://github.com/Naibluver"></i>naibluver</i></a> <a href="https://github.com/DASElN"></i>daseln</i></a> <a href="https://github.com/Venzqs"></i>venzqs</i></a> 
+<a href="https://github.com/Fashlon"></i>fashlon</i></a> <a href="https://github.com/Naibluver"></i>naibluver</i></a> <a href="https://github.com/DASElN"></i>daseln</i></a> <a href="https://github.com/Venzqs"></i>venzqs</i></a> < i love you all so much! - <a href="https://github.com/navistel"></i>navistel</i></a> 
 
 <a href="https://github.com/Mayumixx"></i>mayumixx</i></a> <a href="https://github.com/ATHEISTIC-SATANISM"></i>atheistic-satanism</i></a> <a href="https://github.com/Mimikinsz"></i>mimikinsz</i></a> < ultimate trio three! you guys are really loved.
 
@@ -285,5 +285,11 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/strawbyumeno"></i>strawbyumeno</i></a> <a href="https://github.com/ghostly-sorrows"></i>ghostly-sorrows</i></a> <a href="https://github.com/bastetngeb"></i>bastetngeb</i></a> <a href="https://github.com/angxlpraize"></i>angxlpraize</i></a> < i love you guys youre all so cutieful! - <a href="https://github.com/opioiid"></i>opioiid</i></a>
 
 <a href="https://github.com/freakedoutboy"></i>freakedoutboy</i></a> <a href="https://github.com/cupidzarrow69"></i>cupidzarrow69</i></a> < yall are my favorite idiots fr, never go bald besties! - <a href="https://github.com/disorderlyfashion"></i>disorderlyfashion</i></a>
+
+<a href="https://github.com/raspberry-sprout"></i>raspberry-sprout</i></a> < we've been friends for 4 years, youre my bestest friend and youre so funny. being around you makes me so much happier! - anon
+
+<a href="https://github.com/therealdeanwinchester"></i>therealdeanwinchester</i></a> < youre absolutely goated! - anon
+
+<a href="https://github.com/aesvic"></i>aesvic</i></a> <a href="https://github.com/gumbawll"></i>gumbawll</i></a> <a href="https://github.com/starfollower"></i>starfollower</i></a> <a href="https://github.com/lovemaz"></i>lovemaz</i></a> <a href="https://github.com/montlie"></i>montlie</i></a> <a href="https://github.com/sirinoel"></i>sirinoel</i></a> < amazing friend group!
 
 fingers are in pain but its really worth it!
