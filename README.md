@@ -10,8 +10,6 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/yuriclown"></i>yuriclown</i></a> <a href="https://github.com/N1TEB0I"></i>n1teb0i</i></a> <a href="https://github.com/heathvcliff"></i>heathvcliff</i></a> <a href="https://github.com/jia-baoyu"></i>jia-baoyu</i></a> < the bestest friends of fat gc!
 
-<a href="https://github.com/beauty-clown"></i>beauty-clown</i></a> < Even if we barely share any same fandoms, i still enjoy sitting and spending time with you! youre super cool. - <a href="https://github.com/planetlordd"></i>planetlordd</i>
-
 <a href="https://github.com/clownfoe"></i>clownfoe</i></a> <a href="https://github.com/realdustsans"></i>realdustfans</i></a> < amazing duo that loves spending time together!
 
 <a href="https://github.com/TheWeightOfYourGhost"></i>TheWeightOfYourGhost</i></a> <a href="https://github.com/mymydweller"></i>mymydweller</i></a> < we are practically inseperable in the game! we talk everyday and share secrets of our own! - <a href="https://github.com/charliezahrlie"></i>charliezahrlie</i></a>
@@ -270,7 +268,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/cowpokke"></i>cowpokke</i></a> <a href="https://github.com/angeIshot"></i>angeIshot</i></a> <a href="https://github.com/excessivedeath"></i>excessivedeath</i></a> <a href="https://github.com/HARRlNGTON"></i>harrlngton</i></a> <a href="https://github.com/Bloodymuch"></i>bloodymuch</i></a> <a href="https://github.com/DrunkExorcism"></i>drunkexorcism</i></a> < bunch of losers friendship!
 
-<a href="https://github.com/Ironmary"></i>ironmary</i></a> <a href="https://github.com/tainted-soul"></i>tainted-soul</i></a> <a href="https://github.com/whokilledmarkiplier"></i>whokilledmarkiplier</i></a> < trio of chuds!
+<a href="https://github.com/lronmary"></i>lronmary</i></a> <a href="https://github.com/tainted-soul"></i>tainted-soul</i></a> <a href="https://github.com/whokilledmarkiplier"></i>whokilledmarkiplier</i></a> < trio of chuds!
 
 <a href="https://github.com/ibispaintarchive"></i>ibispaintarchive</i></a> <a href="https://github.com/charming-xiaomao"></i>charming-xiaomao</i></a> <a href="https://github.com/Iyrical"></i>Iyrical</i></a> < i love these people so much! I wish for us to never stop being friends. - trio
 
@@ -291,5 +289,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/therealdeanwinchester"></i>therealdeanwinchester</i></a> < youre absolutely goated! - anon
 
 <a href="https://github.com/aesvic"></i>aesvic</i></a> <a href="https://github.com/gumbawll"></i>gumbawll</i></a> <a href="https://github.com/starfollower"></i>starfollower</i></a> <a href="https://github.com/lovemaz"></i>lovemaz</i></a> <a href="https://github.com/montlie"></i>montlie</i></a> <a href="https://github.com/sirinoel"></i>sirinoel</i></a> < amazing friend group!
+
+<a href="https://github.com/flairforthedramatic"></i>flairforthedramatic</i></a> <a href="https://github.com/Ironmary"></i>lronmary</i></a> <a href="https://github.com/bunchoffriends"></i>bunchoffriends</i></a> <a href="https://github.com/toxicgemstone"></i>toxicgemstone</i></a> < the bunch of friends of ponytown!
 
 fingers are in pain but its really worth it!
