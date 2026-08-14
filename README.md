@@ -292,4 +292,9 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/flairforthedramatic"></i>flairforthedramatic</i></a> <a href="https://github.com/Ironmary"></i>lronmary</i></a> <a href="https://github.com/bunchoffriends"></i>bunchoffriends</i></a> <a href="https://github.com/toxicgemstone"></i>toxicgemstone</i></a> < the bunch of friends of ponytown!
 
+<a href="https://github.com/THEFA1THFUL"></i>thefa1thful</i></a> < best father figure!
+
+<a href="https://github.com/L0VES1CKk"></i>l0ves1ckk</i></a> <a href="https://github.com/artistleafribbon"></i>artistleafribbon</i></a> <
+yall are so cool, probably one of my best online frends ever! - <a href="https://github.com/kaban0z"></i>kaban0z</i></a> 
+
 fingers are in pain but its really worth it!
