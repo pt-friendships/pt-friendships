@@ -297,4 +297,8 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/L0VES1CKk"></i>l0ves1ckk</i></a> <a href="https://github.com/artistleafribbon"></i>artistleafribbon</i></a> <
 yall are so cool, probably one of my best online frends ever! - <a href="https://github.com/kaban0z"></i>kaban0z</i></a> 
 
+<a href="https://github.com/princezammiest"></i>princezammiest</i></a> <a href="https://github.com/HeadOf-Security"></i>headof-security</i></a> <a href="https://github.com/cryostatism"></i>cryostatism</i></a> < amazing France trio!
+
+<a href="https://github.com/piercingveil"></i>piercingveil</i></a> <a href="https://github.com/riverglacier"></i>riverglacier</i></a> < two amazing idiots in a silly pony game!
+
 fingers are in pain but its really worth it!
