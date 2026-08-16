@@ -126,7 +126,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/t0rntodescent"></i>t0rntodescent</i></a> <a href="https://github.com/phainonirl"></i>phainonirl</i></a> <a href="https://github.com/HiromiAndSanemiLover"></i>hitomiandsanemilover</i></a> <a href="https://github.com/sunnegisel"></i>sunnegisel</i></a> < stupid squad group!
 
-<a href="https://github.com/Tordplushie"></i>tordplushie</i></a> <a href="https://github.com/MASQUERADE-PARTY"></i>masquerade-party</i></a> <a href="https://github.com/Pixelbrickz"></i>pixelbrickz</i></a> < amazing trio!
+<a href="https://github.com/kiteplushie"></i>kiteplushie</i></a> <a href="https://github.com/MASQUERADE-PARTY"></i>masquerade-party</i></a> <a href="https://github.com/Pixelbrickz"></i>pixelbrickz</i></a> < amazing trio!
 
 <a href="https://github.com/elisxne"></i>elisxne</i></a> <a href="https://github.com/muaIani"></i>mualani</i></a> < you guys make me happy and smile the most when i see you two! - <a href="https://github.com/bunnycoded"></i>bunnycoded</i></a>
 
@@ -300,5 +300,11 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/princezammiest"></i>princezammiest</i></a> <a href="https://github.com/HeadOf-Security"></i>headof-security</i></a> <a href="https://github.com/cryostatism"></i>cryostatism</i></a> < amazing France trio!
 
 <a href="https://github.com/piercingveil"></i>piercingveil</i></a> <a href="https://github.com/riverglacier"></i>riverglacier</i></a> < two amazing idiots in a silly pony game!
+
+<a href="https://github.com/xcr1s1s"></i>xcr1s1s</i></a> <a href="https://github.com/domedcourt"></i>domedcourt</i></a> < the kavetham losers! great fellas :)
+
+<a href="https://github.com/eternaliity"></i>eternaliity</i></a> <a href="https://github.com/HackettsQuarry"></i>hackettsquarry</i></a> <a href="https://github.com/calicozzy"></i>calicozzy</i></a> <a href="https://github.com/xcr1s1s"></i>xcr1s1s</i></a> <a href="https://github.com/domedcourt"></i>domedcourt</i></a> < sumeru crew friend group!
+
+<a href="https://github.com/electrifypink"></i>electrifypink</i></a> <a href="https://github.com/parasolparadox"></i>parasolparadox</i></a> < we sib till we ling - anon
 
 fingers are in pain but its really worth it!
