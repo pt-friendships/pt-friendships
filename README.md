@@ -309,4 +309,19 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/elisxne"></i>elisxne</i></a> <a href=“https://github.com/BunnyCoded“></i>bunnycoded</i></a> < the nonchieduo!
 
+<a href="https://github.com/raivings"></i>raivings</i></a> < youre the goat! - anon
+
+<a href="https://github.com/ch3shyre"></i>ch3shyre</i></a> < you made me feel better when i was at my lowest, i really appreciate being with you! - anon
+
+<a href="https://github.com/Chiiwara"></i>chiiwara</i></a> <a href="https://github.com/TeaReverie"></i>teareverie</i></a> Miko < besTea + sisters forever!
+
+<a href="https://github.com/purelycursedangel"></i>purelycursedangel</i></a> < youre the bestest mom ever! - anon
+
+<a href="https://github.com/FaSHloN"></i>fashlon</i></a> < i love you very much! i appreciate you. - <a href="https://github.com/bloodbathed"></i>bloodbathed</i></a> 
+
+<a href="https://github.com/venzqs"></i>venzqs</i></a> < youre a great father figure towards me, i love you very much! - 
+<a href="https://github.com/FaSHloN"></i>fashlon</i></a> < i love you very much! i appreciate you. - <a href="https://github.com/bloodbathed"></i>bloodbathed</i></a> 
+
+<a href="https://github.com/FictionalLover"></i>fictionallover</i></a> <a href="https://github.com/Shrimp-er"></i>shrimp-er</i></a> < you guys spend a lot of time together, such silly goobers!
+
 fingers are in pain but its really worth it!
