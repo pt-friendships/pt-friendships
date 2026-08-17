@@ -307,4 +307,6 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/electrifypink"></i>electrifypink</i></a> <a href="https://github.com/parasolparadox"></i>parasolparadox</i></a> < we sib till we ling - anon
 
+<a href="https://github.com/elisxne"></i>elisxne</i></a> <a href=“https://github.com/BunnyCoded“></i>bunnycoded</i></a> < the nonchieduo!
+
 fingers are in pain but its really worth it!
