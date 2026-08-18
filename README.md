@@ -46,7 +46,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/HYP3RBREAK"></i>HYP3RBREAK</i></a> < hey friend! i hope you know that youre fun to hang out with - anon
 
-<a href="https://github.com/pastellcloudyy"></i>pastellcloudyy</i></a> <a href="https://github.com/star-employee"></i>star-employee</i></a> <a href="https://github.com/viimsey"></i>viimsey</i></a> <a href="https://github.com/dopamine-ofdawn"></i>dopamine-ofdawn</i></a> <a href="https://github.com/earl-grey-mp4"></i>earl-grey-mp4</i></a> <a href="https://github.com/zephyrclysm"></i>zephyrclysm</i></a> <a href="https://github.com/dr-vanta"></i>dr-vanta</i></a> < really peak and everyone is best friends!
+<a href="https://github.com/pastellcloudyy"></i>pastellcloudyy</i></a> <a href="https://github.com/star-employee"></i>star-employee</i></a> <a href="https://github.com/viimsey"></i>viimsey</i></a> <a href="https://github.com/earl-grey-mp4"></i>earl-grey-mp4</i></a> <a href="https://github.com/zephyrclysm"></i>zephyrclysm</i></a> <a href="https://github.com/dr-vanta"></i>dr-vanta</i></a> < really peak and everyone is best friends!
 
 <a href="https://github.com/xathetic"></i>xathetic</i></a> <a href="https://github.com/mortalpain"></i>mortalpain</i></a> <a href="https://github.com/cryptic-veil"></i>cryptic-veil</i></a> <a href="https://github.com/HYP3RBREAK"></i>HYP3RBREAK</i></a> <a href="https://github.com/giggle-mut"></i>giggle-mut</i></a> <a href="https://github.com/martinvously"></i>martinvously</i></a> <a href="https://github.com/brittlestars"></i>brittlestars</i></a> < main friends of mine! - <a href="https://github.com/misfortunes-s"></i>misfortunes-s</i></a>
 
@@ -93,8 +93,6 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/NuageMouton"></i>NuageMouton</i></a> <a href="https://github.com/Wranglerkit"></i>Wranglerkit</i></a> < i love playing dumb games with you guys, you also made me less shy! - from a dear friend in your trio!
 
 <a href="https://github.com/qnakin"></i>qnakin</i></a> <a href="https://github.com/tukoian"></i>tukoian</i></a> <a href="https://github.com/plumpest"></i>plumpest</i></a> <a href="https://github.com/VIL-ILY"></i>vil-ily</i></a> <a href="https://github.com/xolariis"></i>xolariis</i></a> <a href="https://github.com/seishin-jpg"></i>seishin-jpg</i></a> <a href="https://github.com/pibblestick"></i>pibblestick</i></a> <a href="https://github.com/zandiik"></i>zandiik</i></a> <a href="https://github.com/meowsael"></i>meowsael</i></a> <a href="https://github.com/sdnryu"></i>sdnryu</i></a> <a href="https://github.com/atlanticoceans"></i>atlanticoceans</i></a> < kuki city! you guys make each other really happy and have a lot of gratitude!
-
-<a href="https://github.com/yanderetan"></i>yanderetan</i></a> <a href="https://github.com/girlslikeguns"></i>girlslikeguns</i></a> <a href="https://github.com/accidentaldeath"></i>accidentaldeath</i></a> < you guys make my day! i really like hanging out with you three - <a href="https://github.com/F-02-14-23"></i>f-02-14-23</i></a>
 
 <a href="https://github.com/yourlovelyscenecoreshayla1111"></i>yourlovelyscenecoreshayla1111</i></a> < I hope we will stay friends forever! - <a href="https://github.com/Z4WARUD0"></i>z4warud0</i></a>
 
@@ -323,5 +321,9 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/FaSHloN"></i>fashlon</i></a> < i love you very much! i appreciate you. - <a href="https://github.com/bloodbathed"></i>bloodbathed</i></a> 
 
 <a href="https://github.com/FictionalLover"></i>fictionallover</i></a> <a href="https://github.com/Shrimp-er"></i>shrimp-er</i></a> < you guys spend a lot of time together, such silly goobers!
+
+<a href="https://github.com/CrimsonRainWitch"></i>crimsonrainwitch</i></a> < youre the best wife and soulmate i could ever ask for! - <a href="https://github.com/flaskofvodka"></i>flaskofvodka</i></a> 
+
+<a href="https://github.com/Planetlords"></i>planetlords</i></a> < youre one of the best people ive ever met, youve been with me since 2024 and we never stopped talking. I appreciate you so much! - <a href="https://github.com/ch3shyre"></i>ch3shyre</i></a>
 
 fingers are in pain but its really worth it!
