@@ -272,8 +272,6 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/zemifhhh"></i>zemifhhh</i></a> < youve changed my life for the better, and i cherish every moment i get with you! - <a href="https://github.com/flaskofvodka"></i>flaskofvodka</i></a>
 
-<a href="https://github.com/S0LR-X"></i>s0lr-x</i></a> < thank you for being an amazing and funny friend! - <a href="https://github.com/MEGURINELUKA02"></i>megurineluka02</i></a> 
-
 <a href="https://github.com/puppyfes"></i>puppyfes</i></a> <a href="https://github.com/azpyiel"></i>azpyiel</i></a> <a href="https://github.com/GILLIONTIDERSTRIDER"></i>gilliontidestrider</i></a> < have been children faction club trio for years! + thank you for being with me for quite some time now, we always come back to each other! - <a href="https://github.com/puppyfes"></i>puppyfes</i></a> 
 
 <a href="https://github.com/constrz"></i>constrz</i></a> <a href="https://github.com/REVERISTCALICO"></i>reveristcalico</i></a> <a href="https://github.com/reynanns"></i>reynanns</i></a> < the angels of six seven trio!
@@ -328,10 +326,12 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/spam-tune"></i>spam-tune</i></a> < i love you and youre goated as hell! - anon
 
-<a href="https://github.com/LCB67"></i>lcb67</i></a> <a href="https://github.com/TastyReality"></i>tastyreality</i></a> <a href="https://github.com/LCB61"></i>lcb61</i></a> <a href="https://github.com/CONSTELLATED-NIGHT"></i>constellated-night</i></a> <a href="https://github.com/exp33"></i>exp33</i></a> < tysm for being in my life, i love yall really much and im happy that i can call you guys as my friends! - <a href="https://github.com/directoryuser1"></i>directoryuser1</i></a> 
+<a href="https://github.com/LCB67"></i>lcb67</i></a> <a href="https://github.com/TastyReality"></i>tastyreality</i></a> <a href="https://github.com/LCB61"></i>lcb61</i></a> <a href="https://github.com/CONSTELLATED-NIGHT"></i>constellated-night</i></a> < tysm for being in my life, i love yall really much and im happy that i can call you guys as my friends! (the exp33 group) - <a href="https://github.com/directoryuser1"></i>directoryuser1</i></a> 
 
 <a href="https://github.com/timstalkerdrake"></i>timstalkerdrake</i></a> <a href="https://github.com/sebvsene"></i>sebvsene</i></a> <a href="https://github.com/aeszz"></i>aeszz</i></a> <a href="https://github.com/sweetdeathstar"></i>sweetdeathstar</i></a> <a href="https://github.com/lilsweeterlilbitter"></i>lilsweeterlilbitter</i></a> < amazing friendgroup!
 
 <a href="https://github.com/Dereduo"></i>dereduo</i></a> < youve been my light through darkness, you are also my day one and i can proclaim us being immortal duo. - <a href="https://github.com/AbyssalzoneDuo"></i>abyssalzoneduo</i></a> 
+
+<a href="https://github.com/Snuckiee"></i>snuckiee</i></a> <a href="https://github.com/YuriNuki"></i>YuriNuki</i></a> < you guys are fun and worth being with, i feel less insecure and more open with you two! - <a href="https://github.com/starsoflumion"></i>starsoflumion</i></a>
 
 fingers are in pain but its really worth it!
