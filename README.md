@@ -318,7 +318,7 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/venzqs"></i>venzqs</i></a> < youre a great father figure towards me, i love you very much! - 
 <a href="https://github.com/FaSHloN"></i>fashlon</i></a> < i love you very much! i appreciate you. - <a href="https://github.com/bloodbathed"></i>bloodbathed</i></a> 
 
-<a href="https://github.com/FictionalLover"></i>fictionallover</i></a> <a href="https://github.com/Shrimp-er"></i>shrimp-er</i></a> < you guys spend a lot of time together, such silly goobers!
+<a href="https://github.com/FictionalLover"></i>fictionallover</i></a> <a href="https://github.com/SushiTofu"></i>sushitofu</i></a> < you guys spend a lot of time together, such silly goobers!
 
 <a href="https://github.com/CrimsonRainWitch"></i>crimsonrainwitch</i></a> < youre the best wife and soulmate i could ever ask for! - <a href="https://github.com/flaskofvodka"></i>flaskofvodka</i></a> 
 
@@ -333,5 +333,15 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/Dereduo"></i>dereduo</i></a> < youve been my light through darkness, you are also my day one and i can proclaim us being immortal duo. - <a href="https://github.com/AbyssalzoneDuo"></i>abyssalzoneduo</i></a> 
 
 <a href="https://github.com/Snuckiee"></i>snuckiee</i></a> <a href="https://github.com/YuriNuki"></i>YuriNuki</i></a> < you guys are fun and worth being with, i feel less insecure and more open with you two! - <a href="https://github.com/starsoflumion"></i>starsoflumion</i></a>
+
+<a href="https://github.com/SilentCriesOfDeath"></i>silentcriesofdeath</i></a> <a href="https://github.com/windlesstorm"></i>windlesstorm</i></a> <a href="https://github.com/monachgrievings"></i>monachgrievings</i></a> < sonic, shadow and silver trio!
+
+<a href="https://github.com/to-angel"></i>to-angel</i></a> < im so happy i met you, youre the best person and thank you for being my friend! - <a href="https://github.com/dearcheshire"></i>dearcheshire</i></a>
+
+<a href="https://github.com/sketchyremorse"></i>sketchyremorse</i></a> < i love spending time with her! - <a href="https://github.com/oraclegordon"></i>oraclegordon</i></a> 
+
+<a href="https://github.com/CherriTartz"></i>cherritartz</i></a> < i love you so much, youre like a big brother to me! - <a href="https://github.com/dukeshusband"></i>dukeshusband</i></a>
+
+<a href="https://github.com/transadori"></i>transadori</i></a> <a href="https://github.com/toewrestlergod3000"></i>toewrestlergod3000</i></a> <a href="https://github.com/suselle"></i>suselle</i></a> <a href="https://github.com/cme-o"></i>cme-o</i></a> <a href="https://github.com/verjty"></i>verjty</i></a> <a href="https://github.com/FLY-PAPER-TRAP"></i>fly-paper-trap</i></a> < i love spending time with them, i see them as my family and i love them! - <a href="https://github.com/URAHARA-KI"></i>URAHARA-KI</i></a> 
 
 fingers are in pain but its really worth it!
