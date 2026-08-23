@@ -26,7 +26,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/gamblersi"></i>gamblersi</i></a> <a href="https://github.com/DEBTHVERIFIED"></i>debthverified</i></a> < the doublefedora duo!
 
-<a href="https://github.com/gamblersi"></i>gamblersi</i></a> <a href="https://github.com/uictim"></i>uictim</i></a> < the royalduo!
+<a href="https://github.com/gamblersi"></i>gamblersi</i></a> <a href="https://github.com/itrap-2245"></i>itrap-2245</i></a> < the gays duo + frozengambler duo!
 
 <a href="https://github.com/Acid-batz"></i>Acid-batz</i></a> <a href="https://github.com/eggypancake1"></i>eggypancake1</i></a> <a href="https://github.com/misfortunes-s"></i>misfortunes-s</i></a> < you guys are very funny, we got very close by a short time and you all are the coolest ever! love you guys platonically - <a href="https://github.com/N1TEB0I"></i>N1TEB0I</i></a>
 
@@ -174,7 +174,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/frikisenpai69"></i>frikisenpai69</i></a> <a href="https://github.com/xeijirou"></i>xeijirou</i></a> < you guys are the few people i felt close with, stay awesome! - anon
 
-<a href="https://github.com/kunakunah"></i>kunakunah</i></a> <a href="https://github.com/vatrinyasin"></i>vatrinyasin</i></a> <a href="https://github.com/ramudaa"></i>ramudaa</i></a> <a href="https://github.com/ENUMAELlSH"></i>enumaelish</i></a> <a href="https://github.com/ch3shyre"></i>ch3shyre</i></a> <a href="https://github.com/bastetngeb"></i>bastetngeb</i></a> <a href="https://github.com/Acid-batz"></i>acid-batz</i></a> <a href="https://github.com/shxrkyxio"></i>shxrkyxio</i></a> <a href="https://github.com/OLD-D0LL"></i>old-d0ll</i></a> <a href="https://github.com/WAR-HeavenPierceHer"></i>war-heavenpierceher</i></a> <a href="https://github.com/Lxnkzz"></i>lxnkzz</i></a> <a href="https://github.com/ESSH-DiamonGold"></i>essh-diamongold</i></a> <a href="https://github.com/weltita"></i>weltita</i></a> < the kunalings!
+<a href="https://github.com/kunakunah"></i>kunakunah</i></a> <a href="https://github.com/vatrinyasin"></i>vatrinyasin</i></a> <a href="https://github.com/ramudaa"></i>ramudaa</i></a> <a href="https://github.com/ENUMAELlSH"></i>enumaelish</i></a> <a href="https://github.com/ch3shyre"></i>ch3shyre</i></a> <a href="https://github.com/bastetngeb"></i>bastetngeb</i></a> <a href="https://github.com/Acid-batz"></i>acid-batz</i></a> <a href="https://github.com/shxrkyxio"></i>shxrkyxio</i></a> <a href="https://github.com/OLD-D0LL"></i>old-d0ll</i></a> <a href="https://github.com/Lxnkzz"></i>lxnkzz</i></a> <a href="https://github.com/ESSH-DiamonGold"></i>essh-diamongold</i></a> <a href="https://github.com/weltita"></i>weltita</i></a> < the kunalings!
 
 <a href="https://github.com/dragonplays-forsaken"></i>dragonplays-forsaken</i></a> <a href="https://github.com/ravensev"></i>ravensev</i></a> < awesome duo!
 
@@ -328,7 +328,7 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/LCB67"></i>lcb67</i></a> <a href="https://github.com/TastyReality"></i>tastyreality</i></a> <a href="https://github.com/LCB61"></i>lcb61</i></a> <a href="https://github.com/CONSTELLATED-NIGHT"></i>constellated-night</i></a> < tysm for being in my life, i love yall really much and im happy that i can call you guys as my friends! (the exp33 group) - <a href="https://github.com/directoryuser1"></i>directoryuser1</i></a> 
 
-<a href="https://github.com/timstalkerdrake"></i>timstalkerdrake</i></a> <a href="https://github.com/sebvsene"></i>sebvsene</i></a> <a href="https://github.com/aeszz"></i>aeszz</i></a> <a href="https://github.com/sweetdeathstar"></i>sweetdeathstar</i></a> <a href="https://github.com/lilsweeterlilbitter"></i>lilsweeterlilbitter</i></a> < amazing friendgroup!
+<a href="https://github.com/timstalkerdrake"></i>timstalkerdrake</i></a> <a href="https://github.com/sebvsene"></i>sebvsene</i></a> <a href="https://github.com/aeszz"></i>aeszz</i></a> <a href="https://github.com/sweetdeathstar"></i>sweetdeathstar</i></a> <a href="https://github.com/sketchyremorse"></i>sketchyremorse</i></a> <a href="https://github.com/lilsweeterlilbitter"></i>lilsweeterlilbitter</i></a> < amazing friendgroup!
 
 <a href="https://github.com/Dereduo"></i>dereduo</i></a> < youve been my light through darkness, you are also my day one and i can proclaim us being immortal duo. - <a href="https://github.com/AbyssalzoneDuo"></i>abyssalzoneduo</i></a> 
 
@@ -343,5 +343,17 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/CherriTartz"></i>cherritartz</i></a> < i love you so much, youre like a big brother to me! - <a href="https://github.com/dukeshusband"></i>dukeshusband</i></a>
 
 <a href="https://github.com/transadori"></i>transadori</i></a> <a href="https://github.com/toewrestlergod3000"></i>toewrestlergod3000</i></a> <a href="https://github.com/suselle"></i>suselle</i></a> <a href="https://github.com/cme-o"></i>cme-o</i></a> <a href="https://github.com/verjty"></i>verjty</i></a> <a href="https://github.com/FLY-PAPER-TRAP"></i>fly-paper-trap</i></a> < i love spending time with them, i see them as my family and i love them! - <a href="https://github.com/URAHARA-KI"></i>URAHARA-KI</i></a> 
+
+<a href="https://github.com/minecraftmaxxing"></i>minecraftmaxxing</i></a> <a href="https://github.com/fleshburn"></i>fleshburn</i></a> < world domination duo!
+
+<a href="https://github.com/mutiIator"></i>mutiIator</i></a> <a href="https://github.com/travisrapidd"></i>travisrapidd</i></a> < closest bestest friends duo!
+
+<a href="https://github.com/THEBLACKROOK"></i>theblackrook</i></a> <a href="https://github.com/RUST-010"></i>rust-010</i></a> <a href="https://github.com/VlSCARTE"></i>vlscarte</i></a> < i love you guys so much, we are the EverymanHybrid crew amongst many other quartets! - <a href="https://github.com/j777ckpot"></i>j777ckpot</i></a> 
+
+<a href="https://github.com/malepregnancy"></i>malepregnancy</i></a> <a href="https://github.com/dearcheshire"></i>dearcheshire</i></a> <a href="https://github.com/stitched-scars"></i>stitched-scars</i></a> <a href="https://github.com/silveryuu"></i>silveryuu</i></a> <a href="https://github.com/SFOTHS"></i>sfoths</i></a> <a href="https://github.com/rabbitslop"></i>rabbitslop</i></a> <a href="https://github.com/loafyaoi"></i>loafyaoi</i></a> <a href="https://github.com/metadow"></i>metadow</i></a> < words cannot explain how grateful i am for meeting you guys, i love you all so much! - <a href="https://github.com/asrieluo"></i>asrieluo</i></a> 
+
+<a href="https://github.com/R0DRICK-HEFFLEY"></i>r0drick-heffley</i></a> < my bestest friend oat! - <a href="https://github.com/ThatOrangeCatt"></i>thatorangecatt</i></a>
+
+<a href="https://github.com/OHBUNNYBUNNY"></i>OHBUNNYBUNNY</i></a> < we've been friends for a year by now, i feel comfortable and more open around you! - <a href="https://github.com/fluffpuffzz"></i>fluffpuffzz</i></a> 
 
 fingers are in pain but its really worth it!
