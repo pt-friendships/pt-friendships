@@ -356,4 +356,18 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/OHBUNNYBUNNY"></i>OHBUNNYBUNNY</i></a> < we've been friends for a year by now, i feel comfortable and more open around you! - <a href="https://github.com/fluffpuffzz"></i>fluffpuffzz</i></a> 
 
+<a href="https://github.com/onemorewish"></i>onemorewish</i></a> < I appreciate our time talking and bickering with each other! wished that our timezone werent far apart. - <a href="https://github.com/Xooshi"></i>xooshi</i></a> 
+
+<a href="https://github.com/gamblersi"></i>gamblersi</i></a> <a href="https://github.com/OV3RCA5T"></i>ov3rca5t</i></a> < the #contractedchance duo!
+
+<a href="https://github.com/mgcoiin"></i>mgcoiin</i></a> < you are geniunely the best person ever, i love you so much you are so funny and goated! < <a href="https://github.com/tamomsbside"></i>tamonsbside</i></a>
+
+<a href="https://github.com/dojjiko"></i>dojjiko</i></a> <a href="https://github.com/ghost1amy"></i>ghost1amy</i></a> < i wanna say that i love them so much and that im grateful that they were there for me through tough times! - <a href="https://github.com/hoobae"></i>hoobae</i></a>
+
+<a href="https://github.com/Blossoming-Truth"></i>blossoming-truth</i></a> <a href="https://github.com/mentally-stable"></i>mentally-stable</i></a> <a href="https://github.com/UserrrxDDD"></i>userrrxddd</i></a> < amazing trio!
+
+<a href="https://github.com/chodark"></i>chodark</i></a> <a href="https://github.com/UICTIM"></i>uictim</i></a> < the chodark duo!
+
+<a href="https://github.com/2quet"></i>2quet</i></a> < theyre my closest friend ive ever made and their company brings me much joy, i laugh everytime im with them! - <a href="https://github.com/time2bfreaky"></i>time2bfreaky</i></a> 
+
 fingers are in pain but its really worth it!
