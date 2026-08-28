@@ -52,7 +52,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/therealcastiel"></i>therealcastiel</i></a> <a href="https://github.com/thefleshcurtains"></i>thefleshcurtains</i></a> <a href="https://github.com/NERDPROJECT"></i>nerdproject</i></a> < the team-free-will trio!
 
-<a href="https://github.com/Vampxxbi"></i>vampxxbi</i></a> <a href="https://github.com/denguemon"></i>denguemon</i></a> < amazing duo!
+<a href="https://github.com/denguemon"></i>denguemon</i></a> < amazing person!
 
 <a href="https://github.com/01-800-PAPU"></i>01-800-papu</i></a> < youre one of my bestest friends and i love hanging out with you! - <a href="https://github.com/cellbito"></i>cellbito</i></a>
 
@@ -369,5 +369,9 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/chodark"></i>chodark</i></a> <a href="https://github.com/UICTIM"></i>uictim</i></a> < the chodark duo!
 
 <a href="https://github.com/2quet"></i>2quet</i></a> < theyre my closest friend ive ever made and their company brings me much joy, i laugh everytime im with them! - <a href="https://github.com/time2bfreaky"></i>time2bfreaky</i></a> 
+
+<a href="https://github.com/liukangism"></i>liukangism</i></a> < thank you so much for being my best friend and being there for me, i love you! - <a href="https://github.com/screamotabi"></i>screamotabi</i></a> 
+
+<a href="https://github.com/UICTIM"></i>uictim</i></a> <a href="https://github.com/NADD-NADD"></i>nadd-nadd</i></a> < the BLOWINGFUSEDUO!
 
 fingers are in pain but its really worth it!
