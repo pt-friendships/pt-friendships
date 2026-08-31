@@ -374,4 +374,16 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/UICTIM"></i>uictim</i></a> <a href="https://github.com/NADD-NADD"></i>nadd-nadd</i></a> < the BLOWINGFUSEDUO!
 
+<a href="https://github.com/ReNighted"></i>renighted</i></a> <a href="https://github.com/unchanged-man"></i>unchanged-man</i></a> < love being with you guys, your company always make me smile! our bonding makes my day. - <a href="https://github.com/sunsetstealer"></i>sunsetstealer</i></a> 
+
+<a href="https://github.com/danticktum"></i>danticktum</i></a> < avec toi, je suis moi. - <a href="https://github.com/soundrod"></i>soundrod</i></a> 
+
+<a href="https://github.com/the-beastmaker"></i>the-beastmaker</i></a> <a href="https://github.com/BloodthirstyBat"></i>bloodthirstybat</i></a> <a href="https://github.com/rufflecuffs"></i>rufflecuffs</i></a> < i love you guys, youre all amazing and wonderful! Im glad that i met you all. - <a href="https://github.com/feinbergg"></i>feinbergg</i></a>
+
+<a href="https://github.com/echoing-777s"></i>echoing-777s</i></a> < i am so grateful to have you as my brother, i love you! <a href="https://github.com/princezammiest"></i>princezammiest</i></a>
+
+<a href="https://github.com/amourresonance"></i>amourresonance</i></a> <a href="https://github.com/holedwelling"></i>holedwelling</i></a> <a href="https://github.com/divearchieve"></i>divearchieve</i></a> < i really enjoy the time we spend together and appreciate every joke we laughed at! im grateful that we're all friends. - <a href="https://github.com/vodkasour"></i>wodkasour</i></a>
+
+<a href="https://github.com/pwncree"></i>pwncree</i></a> < i geniunely love spending time with you so much, youre very cool and easy to vibe with! - <a href="https://github.com/Tragicomedyy"></i>tragicomedyy</i></a> 
+
 fingers are in pain but its really worth it!
