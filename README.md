@@ -386,4 +386,20 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/pwncree"></i>pwncree</i></a> < i geniunely love spending time with you so much, youre very cool and easy to vibe with! - <a href="https://github.com/Tragicomedyy"></i>tragicomedyy</i></a> 
 
+<a href="https://github.com/oliveraliencreature-a11y"></i>oliveraliencreature-a11y</i></a> <a href="https://github.com/WingedMax"></i>winged-max</i></a> < i love yall so much, thank you two for being my dearest friends and trio! - <a href="https://github.com/DoctorFunkbeat"></i>doctorfunkbeat</i></a> 
+
+<a href="https://github.com/sinfulribbons"></i>sinfulribbons</i></a> < you are the best girlfriend i could ever ask for, i love you so much! - <a href="https://github.com/DoctorFunkbeat"></i>doctorfunkbeat</i></a>
+
+<a href="https://github.com/DoctorFunkbeat"></i>doctorfunkbeat</i></a> < youre very dear to me and im glad that we've been friends for so long! - anon
+
+<a href="https://github.com/oliveraliencreature-a11y"></i>oliveraliencreature-a11y</i></a> < thank you for being my best friend! - anon
+
+<a href="https://github.com/DecayInMetal"></i>decayinmetal</i></a> < bestest mother/friend, youre so cool! - anon
+
+<a href="https://github.com/luhkliet"></i>luhkliet</i></a> <a href="https://github.com/coldatlantic"></i>coldatlantic</i></a> < the best chud duo!
+
+<a href="https://github.com/spring-fever"></i>spring-fever</i></a> <a href="https://github.com/escapeartists"></i>escapeartists</i></a> <a href="https://github.com/acepaceddd"></i>acepaceddd</i></a> < the Crumb trio!
+
+<a href="https://github.com/uv-light"></i>uv-light</i></a> <a href="https://github.com/piijan"></i>piijan</i></a> < amazing duo!
+
 fingers are in pain but its really worth it!
