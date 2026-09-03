@@ -402,4 +402,14 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/uv-light"></i>uv-light</i></a> <a href="https://github.com/piijan"></i>piijan</i></a> < amazing duo!
 
+<a href="https://github.com/sorrowfulpredict"></i>sorrowfulpredict</i></a> < i love you, its an honour for me to meet you and be your partner! - <a href="https://github.com/Gatita-here"></i>gatita-here</i></a> 
+
+<a href="https://github.com/Twixxel-Lessgo"></i>twixxel-lessgo</i></a> <a href="https://github.com/Ilove-him"></i>ilove-him</i></a> <a href="https://github.com/Tailingman"></i>tailingman</i></a> <a href="https://github.com/SweetNightmaress"></i>sweetnightmaress</i></a> < you all are very important to me, i have no regrets meeting you guys! - <a href="https://github.com/Gatita-here"></i>gatita-here</i></a>
+
+<a href="https://github.com/puppywpys"></i>puppywpys</i></a> <a href="https://github.com/huntingbow"></i>huntingbow</i></a> < you guys are amazing and make my day less boring with your jokes and personality in general! - <a href="https://github.com/lostyaoi"></i>lostyaoi</i></a> 
+
+<a href="https://github.com/tenth-doctor"></i>tenth-doctor</i></a> < i love you so much my best friend! - <a href="https://github.com/caseyvale"></i>caseyvale</i></a> 
+
+<a href="https://github.com/sfuhthia"></i>sfuhthia</i></a> < i love you, you are my bestest friend ever! Thank you for staying with me and being there for me. - <a href="https://github.com/yellowmugqs"></i>yellowmugqs</i></a> 
+
 fingers are in pain but its really worth it!
