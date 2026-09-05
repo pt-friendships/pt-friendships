@@ -104,7 +104,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/wickedirene"></i>wickedirene</i></a> <a href="https://github.com/sydsterz"></i>sydsterz</i></a> < you two have changed my life, i am very grateful for everything - from a friend of your trio!
 
-<a href="https://github.com/kaleidoskulls"></i>kaleidoskulls</i></a> <a href="https://github.com/parameowia"></i>parameowia</i></a> <a href="https://github.com/c0ff3el0v3r"></i>c0ff3el0v3r</i></a> <a href="https://github.com/YipeMingosMimos"></i>yipemingosmimos</i></a> <a href="https://github.com/puhzinha"></i>puhzinha</i></a> <a href="https://github.com/jalbert-forever"></i>jalbert-forever</i></a> Tai < amazing friendgroup!
+<a href="https://github.com/kaleidoskulls"></i>kaleidoskulls</i></a> <a href="https://github.com/parameowia"></i>parameowia</i></a> <a href="https://github.com/c0ff3el0v3r"></i>c0ff3el0v3r</i></a> <a href="https://github.com/YipeMingosMimos"></i>yipemingosmimos</i></a> <a href="https://github.com/puhzinha"></i>puhzinha</i></a> <a href="https://github.com/jalbert-forever"></i>jalbert-forever</i></a> <a href="https://github.com/Miciol-R-Katzenth"></i>miciol-r-katzenth</i></a> < amazing family!
 
 <a href="https://github.com/gfpaw"></i>gfpaw</i></a> < i enjoy hanging out with you! - anon
 
@@ -411,5 +411,23 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/tenth-doctor"></i>tenth-doctor</i></a> < i love you so much my best friend! - <a href="https://github.com/caseyvale"></i>caseyvale</i></a> 
 
 <a href="https://github.com/sfuhthia"></i>sfuhthia</i></a> < i love you, you are my bestest friend ever! Thank you for staying with me and being there for me. - <a href="https://github.com/yellowmugqs"></i>yellowmugqs</i></a> 
+
+<a href="https://github.com/That-M0b"></i>that-m0b</i></a> < i love spending time with you! - <a href="https://github.com/Twixxel-Lessgo"></i>twixxel-lessgo</i></a>
+
+<a href="https://github.com/gatita-here"></i>gatita-here</i></a> <a href="https://github.com/TheHacker7n7"></i>thehacker7n7</i></a> <a href="https://github.com/ohmygodduh"></i>ohmygodduh</i></a> <a href="https://github.com/nyankit"></i>nyankit</i></a> <a href="https://github.com/FLORAISONS"></i>floraisons</i></a> <a href="https://github.com/Sperkxena"></i>sperkxena</i></a> <a href="https://github.com/That-mxb"></i>that-mxb</i></a> < you all comfort me, and you guys are important to me! thank you for being my friend. - anon
+
+<a href="https://github.com/yellowmugqs"></i>yellowmugqs</i></a> <a href="https://github.com/sfuhthia"></i>sfuhthia</i></a> < thank you both for being my closest friends, you guys matter a ton to me! - anon
+
+<a href="https://github.com/SINISTERMARKLOVESU"></i>sinistermarklovesu</i></a> <a href="https://github.com/JAWS0DEATH"></i>jaws0death</i></a> <a href="https://github.com/paletteneka"></i>paletteneka</i></a> < my goated friends, i care about you guys a lot and love spending time with you! - <a href="https://github.com/bannysuperman"></i>bannysuperman</i></a> 
+
+<a href="https://github.com/Ilove-him"></i>ilove-him</i></a> <a href="https://github.com/OlgaSinxer"></i>olgasinxer</i></a> <a href="https://github.com/c-utesy"></i>c-utesy</i></a> <a href="https://github.com/VArtfultrust"></i>vartfultrust</i></a> < amazing friend group!
+
+<a href="https://github.com/BeachChick16"></i>beachchick16</i></a> < you used to play with me when i was new, now youre still my greatest friend ever! thank you for spending time with me. - <a href="https://github.com/Olgasinxer"></i>olgasinxer</i></a> 
+
+<a href="https://github.com/Kebunbun-xp"></i>kebunbun-xp</i></a> <a href="https://github.com/Mikael-VI"></i>mikael-vi</i></a> <a href="https://github.com/puppiepopper"></i>puppiepopper</i></a> < the kvy trio!
+
+<a href="https://github.com/tricoIour"></i>tricoIour</i></a> <a href="https://github.com/arsenic-swag"></i>arsenic-swag</i></a> <a href="https://github.com/generixal"></i>generixal</i></a> < one swaggy one happy friendversary to the whimsy trio!
+
+<a href="https://github.com/drfunkbeat"></i>drfunkbeat</i></a> <a href="https://github.com/kniferrific"></i>kniferrific</i></a> < the larpduo!
 
 fingers are in pain but its really worth it!
