@@ -380,7 +380,7 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/the-beastmaker"></i>the-beastmaker</i></a> <a href="https://github.com/BloodthirstyBat"></i>bloodthirstybat</i></a> <a href="https://github.com/rufflecuffs"></i>rufflecuffs</i></a> < i love you guys, youre all amazing and wonderful! Im glad that i met you all. - <a href="https://github.com/feinbergg"></i>feinbergg</i></a>
 
-<a href="https://github.com/echoing-777s"></i>echoing-777s</i></a> < i am so grateful to have you as my brother, i love you! <a href="https://github.com/princezammiest"></i>princezammiest</i></a>
+<a href="https://github.com/echoing-777s"></i>echoing-777s</i></a> < i am so grateful to have you as my brother, i love you! <a href="https://github.com/self-preservation8"></i>self-preservation8</i></a>
 
 <a href="https://github.com/amourresonance"></i>amourresonance</i></a> <a href="https://github.com/holedwelling"></i>holedwelling</i></a> <a href="https://github.com/divearchieve"></i>divearchieve</i></a> < i really enjoy the time we spend together and appreciate every joke we laughed at! im grateful that we're all friends. - <a href="https://github.com/vodkasour"></i>wodkasour</i></a>
 
@@ -429,5 +429,13 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/tricoIour"></i>tricoIour</i></a> <a href="https://github.com/arsenic-swag"></i>arsenic-swag</i></a> <a href="https://github.com/generixal"></i>generixal</i></a> < one swaggy one happy friendversary to the whimsy trio!
 
 <a href="https://github.com/drfunkbeat"></i>drfunkbeat</i></a> <a href="https://github.com/kniferrific"></i>kniferrific</i></a> < the larpduo!
+
+<a href="https://github.com/gatita-here"></i>gatita-here</i></a> <a href="https://github.com/TheHacker7n7"></i>thehacker7n7</i></a> <a href="https://github.com/Twixxel-Lessgo"></i>twixxel-lessgo</i></a> 
+
+<a href="https://github.com/Steampunked-Ghoul"></i>steampunked-ghoul</i></a> <a href="https://github.com/FLORAISONS"></i>floraisons</i></a> < thanks for 3-4 years of friendship! - <a href="https://github.com/nexxiro"></i>nexxiro</i></a> 
+
+<a href="https://github.com/3lueflame"></i>3lueflame</i></a> <a href="https://github.com/aIiendance"></i>aIiendance</i></a> <a href="https://github.com/riwoos"></i>riwoos</i></a> < SPM trio!
+
+<a href="https://github.com/DollsMassacre"></i>dollsmassacre</i></a> < youre so underrated, twin, i hope you can be online more often! - anon
 
 fingers are in pain but its really worth it!
