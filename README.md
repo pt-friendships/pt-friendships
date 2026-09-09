@@ -8,7 +8,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 # <a href="https://friendingeveryonehi.straw.page/"></i>strawpage to request!</i>
 
-<a href="https://github.com/yuriclown"></i>yuriclown</i></a> <a href="https://github.com/N1TEB0I"></i>n1teb0i</i></a> <a href="https://github.com/heathvcliff"></i>heathvcliff</i></a> <a href="https://github.com/jia-baoyu"></i>jia-baoyu</i></a> < the bestest friends of fat gc!
+<a href="https://github.com/yuriclown"></i>yuriclown</i></a> <a href="https://github.com/N1TEB0I"></i>n1teb0i</i></a> <a href="https://github.com/koeokok"></i>koeokok</i></a> <a href="https://github.com/jia-baoyu"></i>jia-baoyu</i></a> < the bestest friends of fat gc!
 
 <a href="https://github.com/clownfoe"></i>clownfoe</i></a> <a href="https://github.com/realdustsans"></i>realdustfans</i></a> < amazing duo that loves spending time together!
 
@@ -154,7 +154,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/DEBHTVERIFIED"></i>debhtverified</i></a> <a href="https://github.com/STREETY-STREET"></i>streety-street</i></a> <a href="https://github.com/Polkaca"></i>polkaca</i></a> < sunset trio!
 
-<a href="https://github.com/zyarverse"></i>zyarverse</i></a> <a href="https://github.com/paworeo"></i>paworeo</i></a> <a href="https://github.com/snowyferns"></i>snowyferns</i></a> <a href="https://github.com/CONEXlONN"></i>conexionn</i></a> < weve been friends for so long! you guys make my days brighter and i love you guys by heart. - <a href="https://github.com/IHASAFACE-LULZ"></i>ihasaface-lulz</i></a>
+<a href="https://github.com/zyarverse"></i>zyarverse</i></a> <a href="https://github.com/paworeo"></i>paworeo</i></a> <a href="https://github.com/necbr0mancer"></i>necbr0mancer</i></a> <a href="https://github.com/CONEXlONN"></i>conexionn</i></a> < weve been friends for so long! you guys make my days brighter and i love you guys by heart. - <a href="https://github.com/IHASAFACE-LULZ"></i>ihasaface-lulz</i></a>
 
 <a href="https://github.com/bluevxmpire"></i>bluevxmpire</i></a> <a href="https://github.com/vampyrumspectrum"></i>vampyrumspectrum</i></a> < best/amazing duo!
 
@@ -437,5 +437,11 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/3lueflame"></i>3lueflame</i></a> <a href="https://github.com/aIiendance"></i>aIiendance</i></a> <a href="https://github.com/riwoos"></i>riwoos</i></a> < SPM trio!
 
 <a href="https://github.com/DollsMassacre"></i>dollsmassacre</i></a> < youre so underrated, twin, i hope you can be online more often! - anon
+
+<a href="https://github.com/scumvillian"></i>scumvillian</i></a> < i super love you big brother, i hope you feed me soon :) - <a href="https://github.com/nameless-boy"></i>nameless-boy</i></a> 
+
+<a href="https://github.com/nine-integer"></i>nine-integer</i></a> <a href="https://github.com/rubinator2763"></i>rubinator2763</i></a> < we've been a trio for an entire year and youre my favourite people! - anon
+
+<a href="https://github.com/witherhalo"></i>witherhalo</i></a> <a href="https://github.com/pyrosp4ce"></i>pyrosp4ce</i></a> < the bestest friends ever!
 
 fingers are in pain but its really worth it!
