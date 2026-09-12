@@ -174,7 +174,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/frikisenpai69"></i>frikisenpai69</i></a> <a href="https://github.com/xeijirou"></i>xeijirou</i></a> < you guys are the few people i felt close with, stay awesome! - anon
 
-<a href="https://github.com/kunakunah"></i>kunakunah</i></a> <a href="https://github.com/vatrinyasin"></i>vatrinyasin</i></a> <a href="https://github.com/ramudaa"></i>ramudaa</i></a> <a href="https://github.com/ENUMAELlSH"></i>enumaelish</i></a> <a href="https://github.com/ch3shyre"></i>ch3shyre</i></a> <a href="https://github.com/bastetngeb"></i>bastetngeb</i></a> <a href="https://github.com/Acid-batz"></i>acid-batz</i></a> <a href="https://github.com/shxrkyxio"></i>shxrkyxio</i></a> <a href="https://github.com/OLD-D0LL"></i>old-d0ll</i></a> <a href="https://github.com/Lxnkzz"></i>lxnkzz</i></a> <a href="https://github.com/ESSH-DiamonGold"></i>essh-diamongold</i></a> <a href="https://github.com/weltita"></i>weltita</i></a> < the kunalings!
+<a href="https://github.com/kunakunah"></i>kunakunah</i></a> <a href="https://github.com/vatrinyasin"></i>vatrinyasin</i></a> <a href="https://github.com/wifiesh"></i>wifiesh</i></a> <a href="https://github.com/ENUMAELlSH"></i>enumaelish</i></a> <a href="https://github.com/ch3shyre"></i>ch3shyre</i></a> <a href="https://github.com/bastetngeb"></i>bastetngeb</i></a> <a href="https://github.com/Acid-batz"></i>acid-batz</i></a> <a href="https://github.com/shxrkyxio"></i>shxrkyxio</i></a> <a href="https://github.com/OLD-D0LL"></i>old-d0ll</i></a> <a href="https://github.com/Lxnkzz"></i>lxnkzz</i></a> <a href="https://github.com/ESSH-DiamonGold"></i>essh-diamongold</i></a> <a href="https://github.com/weltita"></i>weltita</i></a> < the kunalings!
 
 <a href="https://github.com/dragonplays-forsaken"></i>dragonplays-forsaken</i></a> <a href="https://github.com/ravensev"></i>ravensev</i></a> < awesome duo!
 
@@ -190,7 +190,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 **VD server** < thank you guys for accepting me in your group! you guys are amazing. love yall!
 
-**The Fictionkilled Family** < coolest family ever! - <a href="https://github.com/kiwiconicc"></i>kiwiconicc</i></a> 
+**The Fictionkilled Family** < coolest family ever! - <a href="https://github.com/kiwiconiccc"></i>kiwiconiccc</i></a> 
 
 <a href="https://github.com/yookiso"></i>yookiso</i></a> <a href="https://github.com/ghcoulfaun"></i>ghcoulfaun</i></a> < our friendship is goated! they mean a lot to me. - anon
 
@@ -443,5 +443,11 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/nine-integer"></i>nine-integer</i></a> <a href="https://github.com/rubinator2763"></i>rubinator2763</i></a> < we've been a trio for an entire year and youre my favourite people! - anon
 
 <a href="https://github.com/witherhalo"></i>witherhalo</i></a> <a href="https://github.com/pyrosp4ce"></i>pyrosp4ce</i></a> < the bestest friends ever!
+
+<a href="https://github.com/s0ff0s0li"></i>s0ff0s0li</i></a> <a href="https://github.com/fleurdoll"></i>fleurdoll</i></a> < the inseparable huggers duo!
+
+<a href="https://github.com/celibrini"></i>celibrini</i></a> < youre the cutest and my everything and the bestest friend of mine! - <a href="https://github.com/mackwills"></i>mackwills</i></a> 
+
+<a href="https://github.com/0aazoldyck"></i>0aazoldyck</i></a> <a href="https://github.com/Takanubule"></i>takanubule</i></a> < da real killua and gon duo!
 
 fingers are in pain but its really worth it!
