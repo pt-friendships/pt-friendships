@@ -400,7 +400,7 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/spring-fever"></i>spring-fever</i></a> <a href="https://github.com/escapeartists"></i>escapeartists</i></a> <a href="https://github.com/acepaceddd"></i>acepaceddd</i></a> < the Crumb trio!
 
-<a href="https://github.com/uv-light"></i>uv-light</i></a> <a href="https://github.com/piijan"></i>piijan</i></a> < amazing duo!
+<a href="https://github.com/uv-light"></i>uv-light</i></a> <a href="https://github.com/priijan"></i>priijan</i></a> < amazing duo!
 
 <a href="https://github.com/sorrowfulpredict"></i>sorrowfulpredict</i></a> < i love you, its an honour for me to meet you and be your partner! - <a href="https://github.com/Gatita-here"></i>gatita-here</i></a> 
 
@@ -449,5 +449,13 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/celibrini"></i>celibrini</i></a> < youre the cutest and my everything and the bestest friend of mine! - <a href="https://github.com/mackwills"></i>mackwills</i></a> 
 
 <a href="https://github.com/0aazoldyck"></i>0aazoldyck</i></a> <a href="https://github.com/Takanubule"></i>takanubule</i></a> < da real killua and gon duo!
+
+<a href="https://github.com/CONSTELLATED-NIGHT"></i>constellated-night</i></a> <a href="https://github.com/ARCHIvE-ofourown"></i>archieve-ofourown</i></a> <a href="https://github.com/mimisua"></i>mimisua</i></a> < you guys are amazing people, keep it up!
+
+<a href="https://github.com/NPC-TILL"></i>npc-till</i></a> <a href="https://github.com/Caeishere"></i>caeishere</i></a> < thank you guys for being with me, i love spending time with you! - from da goated trio!
+
+<a href="https://github.com/cupiidshot"></i>cupiidshot</i></a> <a href="https://github.com/self-preservation8"></i>self-preservation8</i></a> < i am so proud to be calling you my sons! - <a href="https://github.com/dr-vanta"></i>dr-vanta</i></a> 
+
+<a href="https://github.com/OHBUNNYBUNNY"></i>ohbunnybunny</i></a> <a href="https://github.com/Fluffpuffz"></i>fluffpuffz</i></a> < i love spending time with them and its worth it! - anon
 
 fingers are in pain but its really worth it!
