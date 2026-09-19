@@ -174,7 +174,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/frikisenpai69"></i>frikisenpai69</i></a> <a href="https://github.com/xeijirou"></i>xeijirou</i></a> < you guys are the few people i felt close with, stay awesome! - anon
 
-<a href="https://github.com/kunakunah"></i>kunakunah</i></a> <a href="https://github.com/vatrinyasin"></i>vatrinyasin</i></a> <a href="https://github.com/wifiesh"></i>wifiesh</i></a> <a href="https://github.com/ENUMAELlSH"></i>enumaelish</i></a> <a href="https://github.com/ch3shyre"></i>ch3shyre</i></a> <a href="https://github.com/bastetngeb"></i>bastetngeb</i></a> <a href="https://github.com/Acid-batz"></i>acid-batz</i></a> <a href="https://github.com/shxrkyxio"></i>shxrkyxio</i></a> <a href="https://github.com/OLD-D0LL"></i>old-d0ll</i></a> <a href="https://github.com/Lxnkzz"></i>lxnkzz</i></a> <a href="https://github.com/ESSH-DiamonGold"></i>essh-diamongold</i></a> <a href="https://github.com/weltita"></i>weltita</i></a> < the kunalings!
+<a href="https://github.com/kunakunah"></i>kunakunah</i></a> <a href="https://github.com/vatrinyasin"></i>vatrinyasin</i></a> <a href="https://github.com/wifiesh"></i>wifiesh</i></a> <a href="https://github.com/ENUMAELlSH"></i>enumaelish</i></a> <a href="https://github.com/ch3shyre"></i>ch3shyre</i></a> <a href="https://github.com/bastetngeb"></i>bastetngeb</i></a> <a href="https://github.com/Acid-batz"></i>acid-batz</i></a> <a href="https://github.com/shxrkyxio"></i>shxrkyxio</i></a> <a href="https://github.com/OLD-D0LL"></i>old-d0ll</i></a> <a href="https://github.com/Lxnkzz"></i>lxnkzz</i></a> <a href="https://github.com/ESSH-DiamonGold"></i>essh-diamongold</i></a> <a href="https://github.com/weltita"></i>weltita</i></a> <a href="https://github.com/sorbetflakes"></i>sorbetflakes</i></a> <a href="https://github.com/LAVIEDOTOK"></i>laviedotok</i></a> <a href="https://github.com/newestalbum"></i>newestalbum</i></a> <a href="https://github.com/Hound-of-Ulster"></i>hound-of-ulster</i></a> <a href="https://github.com/fouIIegacy"></i>foullegacy</i></a> <a href="https://github.com/cherryflavoredfoam"></i>cherryflavoredfoam</i></a> <a href="https://github.com/deerbier"></i>deerbier</i></a> < the kunalings!
 
 <a href="https://github.com/dragonplays-forsaken"></i>dragonplays-forsaken</i></a> <a href="https://github.com/ravensev"></i>ravensev</i></a> < awesome duo!
 
@@ -229,8 +229,6 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 <a href="https://github.com/GraveyardOfStars"></i>graveyardofstars</i></a> < youre the best boyfriend ever! i love you so much! < <a href="https://github.com/MrNovalite"></i>mrnovalite</i></a> 
 
 <a href="https://github.com/aphweegif"></i>aphweegif</i></a> <a href="https://github.com/ajthepeach"></i>ajthepeach</i></a> <a href="https://github.com/elizavetahedervary"></i>elizavetahedervary</i></a> <a href="https://github.com/cloudkittys"></i>cloudkittys</i></a> < i love you all so much, thank you for being my best friends ever! - dearest brother francis
-
-<a href="https://github.com/Mayumixx"></i>mayumixx</i></a> <a href="https://github.com/ATHEISTIC-SATANISM"></i>atheistic-satanism</i></a> < amazing duo!
 
 <a href="https://github.com/JADE3E"></i>jade3e</i></a> (Alex Albon) <a href="https://github.com/whirllybirdv"></i>whirllybirdv</i></a> (Lando Norris) <a href="https://github.com/emmmzi"></i>emmmzi</i></a> (George Russell) < 2019 F1 rookies!
 
@@ -457,5 +455,9 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/cupiidshot"></i>cupiidshot</i></a> <a href="https://github.com/self-preservation8"></i>self-preservation8</i></a> < i am so proud to be calling you my sons! - <a href="https://github.com/dr-vanta"></i>dr-vanta</i></a> 
 
 <a href="https://github.com/OHBUNNYBUNNY"></i>ohbunnybunny</i></a> <a href="https://github.com/Fluffpuffz"></i>fluffpuffz</i></a> < i love spending time with them and its worth it! - anon
+
+<a href="https://github.com/Fluffpuffz"></i>Fluffpuffz</i></a> <a href="https://github.com/XANDEROHZANZAN"></i>xanderohzanzan</i></a> < you guys are the bestest friends i could ask for, thank you so much for being there for me! - <a href="https://github.com/OHBUNNYBUNNY"></i>ohbunnybunny</i></a>
+
+<a href="https://github.com/Chiiwara"></i>chiiwara</i></a> <a href="https://github.com/TeaReverie"></i>teareverie</i></a> <a href="https://github.com/FoxiansTale"></i>foxianstale</i></a> <a href="https://github.com/cozywarmth"></i>cozywarmth</i></a> <a href="https://github.com/infugue"></i>infugue</i></a> <a href="https://github.com/LuminwinterRequiem"></i>luminwinterrequiem</i></a> < words cant express how much i love being with you guys! - <a href="https://github.com/kudoszz"></i>kudoszz</i></a> 
 
 fingers are in pain but its really worth it!
