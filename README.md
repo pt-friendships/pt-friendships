@@ -332,7 +332,7 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/Snuckiee"></i>snuckiee</i></a> <a href="https://github.com/YuriNuki"></i>YuriNuki</i></a> < you guys are fun and worth being with, i feel less insecure and more open with you two! - <a href="https://github.com/starsoflumion"></i>starsoflumion</i></a>
 
-<a href="https://github.com/SilentCriesOfDeath"></i>silentcriesofdeath</i></a> <a href="https://github.com/windlesstorm"></i>windlesstorm</i></a> <a href="https://github.com/monachgrievings"></i>monachgrievings</i></a> < sonic, shadow and silver trio!
+<a href="https://github.com/SilentCriesOfDeath"></i>silentcriesofdeath</i></a> <a href="https://github.com/monachgrievings"></i>monachgrievings</i></a> < the best queerplatonic sonadow buddies!
 
 <a href="https://github.com/to-angel"></i>to-angel</i></a> < im so happy i met you, youre the best person and thank you for being my friend! - <a href="https://github.com/dearcheshire"></i>dearcheshire</i></a>
 
@@ -459,5 +459,9 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/Fluffpuffz"></i>Fluffpuffz</i></a> <a href="https://github.com/XANDEROHZANZAN"></i>xanderohzanzan</i></a> < you guys are the bestest friends i could ask for, thank you so much for being there for me! - <a href="https://github.com/OHBUNNYBUNNY"></i>ohbunnybunny</i></a>
 
 <a href="https://github.com/Chiiwara"></i>chiiwara</i></a> <a href="https://github.com/TeaReverie"></i>teareverie</i></a> <a href="https://github.com/FoxiansTale"></i>foxianstale</i></a> <a href="https://github.com/cozywarmth"></i>cozywarmth</i></a> <a href="https://github.com/infugue"></i>infugue</i></a> <a href="https://github.com/LuminwinterRequiem"></i>luminwinterrequiem</i></a> < words cant express how much i love being with you guys! - <a href="https://github.com/kudoszz"></i>kudoszz</i></a> 
+
+<a href="https://github.com/donniesgaptooth"></i>donniesgaptooth</i></a> <a href="https://github.com/capr1sunz"></i>capr1sunz</i></a> < I love playing fashion roulette with you guys! - friend
+
+<a href="https://github.com/Finnism"></i>finnism</i></a> <a href="https://github.com/Gillyfishe"></i>gillyfishe</i></a> <a href="https://github.com/koifishyu"></i>koifishyu</i></a> < the best brother and little sisters!
 
 fingers are in pain but its really worth it!
