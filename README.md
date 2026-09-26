@@ -16,7 +16,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/antlerqueen"></i>antlerqueen</i></a> < you are so fun to sit with and you have a pretty style! funny humour with amazing art as well. - anon!
 
-<a href="https://github.com/sorbetflakes"></i>sorbetflakes</i></a> <a href="https://github.com/opioiid"></i>opioiid</i></a> < you two are really loved by your dear best friend!
+<a href="https://github.com/opioiid"></i>opioiid</i></a> < you are really loved by your dear best friend!
 
 <a href="https://github.com/facaqe"></i>facaqe</i></a> <a href="https://github.com/swoocket"></i>swoocket</i></a> <a href="https://github.com/buildermonyaoi"></i>buildermonyaoi</i></a> < amazing trio!
 
@@ -440,7 +440,7 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/nine-integer"></i>nine-integer</i></a> <a href="https://github.com/rubinator2763"></i>rubinator2763</i></a> < we've been a trio for an entire year and youre my favourite people! - anon
 
-<a href="https://github.com/witherhalo"></i>witherhalo</i></a> <a href="https://github.com/pyrosp4ce"></i>pyrosp4ce</i></a> < the bestest friends ever!
+<a href="https://github.com/witherhalo"></i>witherhalo</i></a> <a href="https://github.com/1retsxnarp"></i>1retsxnarp</i></a> < the bestest friends ever!
 
 <a href="https://github.com/s0ff0s0li"></i>s0ff0s0li</i></a> <a href="https://github.com/fleurdoll"></i>fleurdoll</i></a> < the inseparable huggers duo!
 
@@ -463,5 +463,15 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/donniesgaptooth"></i>donniesgaptooth</i></a> <a href="https://github.com/capr1sunz"></i>capr1sunz</i></a> < I love playing fashion roulette with you guys! - friend
 
 <a href="https://github.com/Finnism"></i>finnism</i></a> <a href="https://github.com/Gillyfishe"></i>gillyfishe</i></a> <a href="https://github.com/koifishyu"></i>koifishyu</i></a> < the best brother and little sisters!
+
+<a href="https://github.com/ayatosbathwather"></i>ayatosbathwater</i></a> <a href="https://github.com/ringodemon"></i>ringodemon</i></a> < the flipside duo!
+
+<a href="https://github.com/yubelsrevenge"></i>yubelsrevenge</i></a> <a href="https://github.com/infugue"></i>infugue</i></a> < the best friends duo!
+
+<a href="https://github.com/gwenster"></i>gwenster</i></a> <a href="https://github.com/duckseatbreads"></i>duckseatbreads</i></a> <a href="https://github.com/cashreggister"></i>cashreggister</i></a> <a href="https://github.com/frix6x"></i>frix6x</i></a> < i love you all very dearly, you are my best friends! - callie
+
+<a href="https://github.com/creampufflings"></i>creampufflings</i></a> <a href="https://github.com/aetherparadise"></i>aetherparadise</i></a> <a href="https://github.com/frostbittenkisses"></i>frostbittenkisses</i></a> < i really enjoy talking with you guys! - <a href="https://github.com/Dexholder"></i>dexholder</i></a> 
+
+<a href="https://github.com/creampufflings"></i>creampufflings</i></a> < i love you so much, you are forever my silver to my gold and i will cherish our moments in my heart! - <a href="https://github.com/Dexholder"></i>dexholder</i></a> 
 
 fingers are in pain but its really worth it!
