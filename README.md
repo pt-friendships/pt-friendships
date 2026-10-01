@@ -190,7 +190,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 **VD server** < thank you guys for accepting me in your group! you guys are amazing. love yall!
 
-**The Fictionkilled Family** < coolest family ever! - <a href="https://github.com/kiwiconiccc"></i>kiwiconiccc</i></a> 
+**Noe's Sidequest NPCs** < coolest family ever! - <a href="https://github.com/kiwiconiccc"></i>kiwiconiccc</i></a> 
 
 <a href="https://github.com/yookiso"></i>yookiso</i></a> <a href="https://github.com/ghcoulfaun"></i>ghcoulfaun</i></a> < our friendship is goated! they mean a lot to me. - anon
 
@@ -473,5 +473,15 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/creampufflings"></i>creampufflings</i></a> <a href="https://github.com/aetherparadise"></i>aetherparadise</i></a> <a href="https://github.com/frostbittenkisses"></i>frostbittenkisses</i></a> < i really enjoy talking with you guys! - <a href="https://github.com/Dexholder"></i>dexholder</i></a> 
 
 <a href="https://github.com/creampufflings"></i>creampufflings</i></a> < i love you so much, you are forever my silver to my gold and i will cherish our moments in my heart! - <a href="https://github.com/Dexholder"></i>dexholder</i></a> 
+
+<a href="https://github.com/Akitoyota"></i>akitoyota</i></a> <a href="https://github.com/Lananannan"></i>lananannan</i></a> < cousin and auntie duo!
+
+<a href="https://github.com/bullseyeing"></i>bullseyeing</i></a> <a href="https://github.com/waverIy"></i>waverIy</i></a> <a href="https://github.com/galliambic"></i>galliambic</i></a> < greatest multifandom friendgroup!
+
+<a href="https://github.com/RamenCakes"></i>ramencakes</i></a> <a href="https://github.com/SushiTofu"></i>sushitofu</i></a> < silly siblings!
+
+<a href="https://github.com/sundialduo"></i>sundialduo</i></a> <a href="https://github.com/lampurrt"></i>lampurrt</i></a> <a href="https://github.com/triangulist"></i>triangulist</i></a> < the lame gay nerds trio!
+
+<a href="https://github.com/5CRIBE"></i>5cribe</i></a> < thanks for being one of my best friends, i really appreciate how i can tell you anything, also your patience with me during my lowest moments! - <a href="https://github.com/uselessflower"></i>uselessflower</i></a> 
 
 fingers are in pain but its really worth it!
