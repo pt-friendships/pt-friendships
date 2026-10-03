@@ -486,7 +486,7 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/fuiimetaljacket"></i>fuiimetaljacket</i></a> < we are the best chicken nuggets in the worlds with no sauce! - anon
 
-<a href="https://github.com/ROTTENN"></i>rottenn</i></a> <a href="https://github.com/femboytiger"></i>femboytiger</i></a> < it has been 5 yearrs since we been friends and im really grateful for you guys! - anon
+<a href="https://github.com/ROTTENN"></i>rottenn</i></a> <a href="https://github.com/femboytiger"></i>femboytiger</i></a> < it has been 5 yearrs since we been friends and im really grateful for you guys! - wonderful friend
 
 <a href="https://github.com/B1-SP1Der"></i>b1-sp1der</i></a> <a href="https://github.com/zerkforlove"></i>zerkforlove</i></a> < best tryhard duo!
 
