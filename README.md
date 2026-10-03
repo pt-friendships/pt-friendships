@@ -484,4 +484,14 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/5CRIBE"></i>5cribe</i></a> < thanks for being one of my best friends, i really appreciate how i can tell you anything, also your patience with me during my lowest moments! - <a href="https://github.com/uselessflower"></i>uselessflower</i></a> 
 
+<a href="https://github.com/fuiimetaljacket"></i>fuiimetaljacket</i></a> < we are the best chicken nuggets in the worlds with no sauce! - anon
+
+<a href="https://github.com/ROTTENN"></i>rottenn</i></a> <a href="https://github.com/femboytiger"></i>femboytiger</i></a> < it has been 5 yearrs since we been friends and im really grateful for you guys! - anon
+
+<a href="https://github.com/B1-SP1Der"></i>b1-sp1der</i></a> <a href="https://github.com/zerkforlove"></i>zerkforlove</i></a> < best tryhard duo!
+
+<a href="https://github.com/PlERROT"></i>plerrot</i></a> <a href="https://github.com/RQGUE"></i>RQGUE</i></a> < the most gay for strong fictional women duo!
+
+<a href="https://github.com/oraclegordon"></i>oraclegordon</i></a> <a href="https://github.com/sketchyremorse"></i>sketchyremorse</i></a> < theyre my sweetest and kindest queer polysexual oomfs! - <a href="https://github.com/PYRlTE"></i>pyrlte</i></a> 
+
 fingers are in pain but its really worth it!
