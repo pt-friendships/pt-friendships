@@ -370,8 +370,6 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/liukangism"></i>liukangism</i></a> < thank you so much for being my best friend and being there for me, i love you! - <a href="https://github.com/screamotabi"></i>screamotabi</i></a> 
 
-<a href="https://github.com/UICTIM"></i>uictim</i></a> <a href="https://github.com/NADD-NADD"></i>nadd-nadd</i></a> < the BLOWINGFUSEDUO!
-
 <a href="https://github.com/ReNighted"></i>renighted</i></a> <a href="https://github.com/unchanged-man"></i>unchanged-man</i></a> < love being with you guys, your company always make me smile! our bonding makes my day. - <a href="https://github.com/sunsetstealer"></i>sunsetstealer</i></a> 
 
 <a href="https://github.com/danticktum"></i>danticktum</i></a> < avec toi, je suis moi. - <a href="https://github.com/soundrod"></i>soundrod</i></a> 
@@ -493,5 +491,13 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 <a href="https://github.com/PlERROT"></i>plerrot</i></a> <a href="https://github.com/RQGUE"></i>RQGUE</i></a> < the most gay for strong fictional women duo!
 
 <a href="https://github.com/oraclegordon"></i>oraclegordon</i></a> <a href="https://github.com/sketchyremorse"></i>sketchyremorse</i></a> < theyre my sweetest and kindest queer polysexual oomfs! - <a href="https://github.com/PYRlTE"></i>pyrlte</i></a> 
+
+<a href="https://github.com/cherubimBlood"></i>cherubimBlood</i></a> <a href="https://github.com/iwanttoholdyourhand"></i>iwanttoholdyourhand</i></a> < i love you too mosquito!
+
+<a href="https://github.com/Lovelydrug"></i>lovelydrug</i></a> <a href="https://github.com/PUPPYCALEB"></i>puppycaleb</i></a> < you guys are my 1st lads, i miss hanging out together! - <a href="https://github.com/TeaReverie"></i>teareverie</i></a> 
+
+<a href="https://github.com/writteninraven"></i>writteninraven</i></a> <a href="https://github.com/crypticclues"></i>crypticclues</i></a> < Rave, thank you for being my sweet girl. Spookie, you're an amazing best friend. - <a href="https://github.com/biteofme"></i>biteofme</i></a>
+
+<a href="https://github.com/halfp1pe"></i>halfp1pe</i></a> < i appreciate my online sister a lot! - <a href="https://github.com/rydenyuri"></i>rydenyuri</i></a> 
 
 fingers are in pain but its really worth it!
