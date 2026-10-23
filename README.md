@@ -512,4 +512,4 @@ Dibblydingos GC < i love all of you!
 
 <a href="https://github.com/twottimey"></i>twottimey</i></a> <a href="https://github.com/carcrashxoxo"></i>carcrashxoxo</i></a> < azuretime duo!
 
-requests might be added a little more slower :( exams and school is really stressing me! I still plan on continuing this, because i love bringing joy.
+requests might be added a little more slower :( exams and school is really stressing me! I still plan on continuing this, because i love spreading the joy of others.
