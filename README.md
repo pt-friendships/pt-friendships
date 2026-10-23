@@ -344,7 +344,7 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/minecraftmaxxing"></i>minecraftmaxxing</i></a> <a href="https://github.com/fleshburn"></i>fleshburn</i></a> < world domination duo!
 
-<a href="https://github.com/mutiIator"></i>mutiIator</i></a> <a href="https://github.com/travisrapidd"></i>travisrapidd</i></a> < closest bestest friends duo!
+<a href="https://github.com/mutiIator"></i>mutiIator</i></a> <a href="https://github.com/travissamuelrapid"></i>travisrapidd</i></a> < closest bestest friends duo!
 
 <a href="https://github.com/THEBLACKROOK"></i>theblackrook</i></a> <a href="https://github.com/RUST-010"></i>rust-010</i></a> <a href="https://github.com/VlSCARTE"></i>vlscarte</i></a> < i love you guys so much, we are the EverymanHybrid crew amongst many other quartets! - <a href="https://github.com/j777ckpot"></i>j777ckpot</i></a> 
 
@@ -500,4 +500,16 @@ yall are so cool, probably one of my best online frends ever! - <a href="https:/
 
 <a href="https://github.com/halfp1pe"></i>halfp1pe</i></a> < i appreciate my online sister a lot! - <a href="https://github.com/rydenyuri"></i>rydenyuri</i></a> 
 
-fingers are in pain but its really worth it!
+<a href="https://github.com/Rotsings"></i>rotsings</i></a> < i love you, youre so cool and the best friend ever. - <a href="https://github.com/Worm-Farmer"></i>worm-farmer</i></a> 
+
+Dibblydingos GC < i love all of you!
+
+<a href="https://github.com/stqrzthers"></i>stqrzthers</i></a> < i love talking to you and hanging out with you! youre so sweet and cool! im glad that i met you. - anon
+
+<a href="https://github.com/busstyfather"></i>busstyfather</i></a> <a href="https://github.com/Asmostasis"></i>asmostasis</i></a> <a href="https://github.com/chersei"></i>chersei</i></a> <a href="https://github.com/IiIivane"></i>IiIivane</i></a> < we all blossomed together irl and i really love sitting with them everyday!
+
+<a href="https://github.com/paradisekisse"></i>paradisekisse</i></a> < you are so peak!
+
+<a href="https://github.com/twottimey"></i>twottimey</i></a> <a href="https://github.com/carcrashxoxo"></i>carcrashxoxo</i></a> < azuretime duo!
+
+requests might be added a little more slower :( exams and school is really stressing me! I still plan on continuing this, because i love bringing joy.
