@@ -8,7 +8,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 # <a href="https://friendingeveryonehi.straw.page/"></i>strawpage to request!</i>
 
-<a href="https://github.com/yuriclown"></i>yuriclown</i></a> <a href="https://github.com/N1TEB0I"></i>n1teb0i</i></a> <a href="https://github.com/koeokok"></i>koeokok</i></a> <a href="https://github.com/jia-baoyu"></i>jia-baoyu</i></a> < the bestest friends of fat gc!
+<a href="https://github.com/yuriclown"></i>yuriclown</i></a> <a href="https://github.com/N1TEB0I"></i>n1teb0i</i></a> <a href="https://github.com/gambitsgrave"></i>gambitsgrave</i></a> <a href="https://github.com/jia-baoyu"></i>jia-baoyu</i></a> < the bestest friends of fat gc!
 
 <a href="https://github.com/clownfoe"></i>clownfoe</i></a> <a href="https://github.com/realdustsans"></i>realdustfans</i></a> < amazing duo that loves spending time together!
 
@@ -26,7 +26,7 @@ Hello! welcome to this page. This is where you write one of the friendships (by 
 
 <a href="https://github.com/gamblersi"></i>gamblersi</i></a> <a href="https://github.com/DEBTHVERIFIED"></i>debthverified</i></a> < the doublefedora duo!
 
-<a href="https://github.com/gamblersi"></i>gamblersi</i></a> <a href="https://github.com/itrap-2245"></i>itrap-2245</i></a> < the gays duo + frozengambler duo!
+<a href="https://github.com/Nadd-nadd"></i>nadd-nadd</i></a> <a href="https://github.com/itrap-2245"></i>itrap-2245</i></a> < the gays duo + frozengambler duo!
 
 <a href="https://github.com/Acid-batz"></i>Acid-batz</i></a> <a href="https://github.com/eggypancake1"></i>eggypancake1</i></a> <a href="https://github.com/misfortunes-s"></i>misfortunes-s</i></a> < you guys are very funny, we got very close by a short time and you all are the coolest ever! love you guys platonically - <a href="https://github.com/N1TEB0I"></i>N1TEB0I</i></a>
 
@@ -511,5 +511,31 @@ Dibblydingos GC < i love all of you!
 <a href="https://github.com/paradisekisse"></i>paradisekisse</i></a> < you are so peak!
 
 <a href="https://github.com/twottimey"></i>twottimey</i></a> <a href="https://github.com/carcrashxoxo"></i>carcrashxoxo</i></a> < azuretime duo!
+
+<a href="https://github.com/rowwannie"></i>rowwannie</i></a> < youre my safeplace by the way! - <a href="https://github.com/kyutbie"></i>kyutbie</i></a> 
+
+<a href="https://github.com/candynoodle"></i>candynoodle</i></a> <a href="https://github.com/wastedsacrifice"></i>wastedsacrifice</i></a> < I love you guys very dearly and im happy to be friends with you both! - <a href="https://github.com/nocturnuII"></i>nocturnuII</i></a>
+
+<a href="https://github.com/M4rkus101"></i>m4rkus101</i></a> <a href="https://github.com/zBankaSoli"></i>zbankasoli</i></a> < the Alan and Liam duo!
+
+<a href="https://github.com/fuwafuransu"></i>fuwafuransu</i></a> <a href="https://github.com/souyooo"></i>souyooo</i></a> <a href="https://github.com/republicofchile"></i>republicofchile</i></a> <a href="https://github.com/kabooples"></i>kabooples</i></a> <a href="https://github.com/villonousvelvetcakes"></i>villonousvelvetcakes</i></a> < I love you guys so much, you guys make my day when i get to see you! - anon
+
+<a href="https://github.com/neiify"></i>neiify</i></a> <a href="https://github.com/the0baidthebird"></i>the0baidthebird</i></a> <a href="https://github.com/pIanetlord"></i>pIanetlord</i></a> < the bubbly guppies trio!
+
+<a href="https://github.com/skephaloyaoi"></i>skephaloyaoi</i></a> <a href="https://github.com/sirencore"></i>sirencore</i></a> < i love spending time with you, you guys make my life better! - <a href="https://github.com/AdiosT0reador"></i>adiost0reador</i></a> 
+
+<a href="https://github.com/protectioncharm"></i>protectioncharm</i></a> <a href="https://github.com/lo0nygoon"></i>lo0nygoon</i></a> <a href="https://github.com/G0reology"></i>g0reology</i></a> < the larpgod trio!
+
+<a href="https://github.com/soukeyeeee"></i>soukeyeeee</i></a> <a href="https://github.com/witchinghourx"></i>witchinghourx</i></a> <a href="https://github.com/Flayedrocker"></i>flayedrocker</i></a> Ethan Evan < you guys have no idea how much i dreamt of people like you entering my life. - <a href="https://github.com/TheLongLongHoliday"></i>thelonglongholiday</i></a>
+
+<a href="https://github.com/Silencewasnothere"></i>silencewasnothere</i></a> <a href="https://github.com/iTrappedFan"></i>itrappedfan</i></a> < the Oddysal duo!
+
+<a href="https://github.com/N0VALIT3"></i>n0valit3</i></a> <a href="https://github.com/hatredcreation"></i>hatredcreation</i></a> <a href="https://github.com/s3edly"></i>s3edly</i></a> <a href="https://github.com/Lu4an44"></i>lu4n44</i></a> <a href="https://github.com/sirencore"></i>sirencore</i></a> <a href="https://github.com/antonelli"></i>antonelli</i></a> < i love all of you guys! - anon
+
+<a href="https://github.com/frag1leserendip1ty"></i>frag1leserendip1ty</i></a> <a href="https://github.com/IceyMew"></i>iceymew</i></a> < you guys make me so happy and make me feel better whenever youre around! - <a href="https://github.com/ReplicaOfAffection"></i>replicaofaffection</i></a> 
+
+<a href="https://github.com/GET-H4XX3D"></i>get-h4xx3d</i></a> <a href="https://github.com/RUST-010"></i>rust-010</i></a> <a href="https://github.com/UNLEASH-NOLI"></i>unleash-noli</i></a> < 007n7, Elliot and Noli trio!
+
+<a href="https://github.com/VArtfultrust"></i>vartfultrust</i></a> <a href="https://github.com/Testing-Ter"></i>testing-ter</i></a> < the evil cousin duo!
 
 requests might be added a little more slower :( exams and school is really stressing me! I still plan on continuing this, because i love spreading the joy of others.
